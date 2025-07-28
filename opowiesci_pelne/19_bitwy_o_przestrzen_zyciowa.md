@@ -1,442 +1,827 @@
-# Bitwy o przestrzeń życiową
-
-*Historie o zderzeniu polskiego gromadzenia z koreańskim minimalizmem*
-
-## Spis wersji
-
-### Wersja 1: Wielka wojna o półkę
-Jadzia Kim i Minho próbują urządzić wspólne mieszkanie. Ona przywozi biblioteczkę, zastawę od babci i 40 kubków. On ma trzy pudełka i matę do jogi. Chaos gwarantowany.
-
-### Wersja 2: Filozoficzny traktat o przestrzeni
-Głębsze spojrzenie na to, jak różne kultury postrzegają dom, własność i potrzebę posiadania rzeczy.
-
-### Wersja 3: Komedia romantyczna
-Lekka historia o tym, jak miłość pokonuje różnice w liczbie poduszek ozdobnych.
-
-### Wersja 4: Poradnik organizacji przestrzeni
-Praktyczne wskazówki dla par międzykulturowych urządzających wspólne mieszkanie.
-
-### Wersja 5: Dramat rodzinny
-Gdy teściowie z obu stron odwiedzają młodą parę i mają swoje zdanie o wystroju wnętrz.
+# bitwy o przestrzeń życiową
+*autorka: Jadzia Kim*
 
 ---
 
-## Wersja 1: Wielka wojna o półkę
+## wersja 1: gospodarz wymiany katastrof
 
-Nazywam się Jadzia Kim i mam do was, drodzy czytelnicy, bardzo ważną prośbę: jeśli kiedykolwiek będziecie urządzać mieszkanie z osobą z zupełnie innej kultury, zróbcie sobie najpierw test zgodności. Nie, nie chodzi mi o te internetowe quizy typu "Jaki jesteś owoc?" czy "Którą postacią z Harrego Pottera jesteś?". Chodzi mi o prosty test: pokażcie sobie nawzajem zdjęcia waszych idealnych mieszkań.
+Kiedy pierwszy raz weszłam do mieszkania Jihae, pomyślałam, że wpadłam w katalog IKEA, który eksplodował. Każdy centymetr miał swoje wyznaczone miejsce, każdy przedmiot stał w perfekcyjnej harmonii z resztą. Ja przywiozłam ze sobą jeden mały plecak i kilka wielkich problemów z organizacją przestrzeni.
 
-Gdybym ja i Minho zrobili taki test przed wprowadzeniem się do naszego gniazdka w Warszawie, być może uniknęlibyśmy tego, co później nazwaliśmy "Wielką Wojną o Półkę", choć to nazwa myląca – tak naprawdę toczyliśmy bitwy o każdy centymetr kwadratowy naszego mieszkania.
+"Tutaj będziesz spać" - wskazała na salon, gdzie sofka wyglądała jak dzieło sztuki, zbyt piękne, żeby na nim usiąść. "Rano składamy pościel do szafki. Buty zostawiamy tu" - pokazała specjalną półkę. Miałam ze sobą trzy pary butów. Ona miała ich czterdzieści siedem. Policzyłam.
 
-Wszystko zaczęło się niewinnie. Znaleźliśmy śliczne dwupokojowe mieszkanie na Mokotowie – jasne, przestronne, z balkonem i widokiem na park. Oboje byliśmy zachwyceni.
+Pierwszego ranka obudziłam się o szóstej, bo Jihae robiła śniadanie. Nie robiła - konstruowała. Miska ryżu ustawiona dokładnie trzy centymetry od krawędzi stołu, pałeczki równolegle do siebie, sałatka w małej miseczce na idealnej wysokości. Ja wstałam, zaparzyłam kawę w kubku "I love NY" i usiadłam na podłodze z laptopem.
 
-– To idealne! – zawołałam, już wyobrażając sobie, jak urządzę każdy kąt.
+Jihae spojrzała na mnie jak na kogoś, kto właśnie kopnął szczeniaka.
 
-– Dokładnie! – zgodził się Minho. – Tyle przestrzeni! Nic tu nie będzie potrzebne!
+"W Korei nie jemy na podłodze" - powiedziała delikatnie.
 
-Powinnam była wtedy zwrócić uwagę na to "nic tu nie będzie potrzebne", ale byłam zbyt podekscytowana perspektywą własnego mieszkania. Pierwsza wspólna przestrzeń! Romantycznie! Co mogło pójść nie tak?
+"A ja jestem z Polski i jem wszędzie" - odpowiedziałam, popijając kawę.
 
-Odpowiedź: absolutnie wszystko.
+To był początek naszej trzyletniej wojny o każdy metr kwadratowy.
 
-Przeprowadzka odbyła się w dwa etapy. Najpierw Minho przywiózł swoje rzeczy. Kiedy weszłam do mieszkania, myślałam, że się pomylił i wszedł do złego lokalu.
+Problem tkwił w tym, że ja zajmowałam przestrzeń, a ona ją organizowała. Gdy zostawiałam książkę na stole, ona ją przenosiła na półkę. Gdy rzucałam kurtkę na krzesło, ona wieszała ją w szafie. Gdy rozkładałam papiery na podłodze, ona kładła je w segregatory.
 
-– Minho? – zawołałam. – Jesteś tu?
+Miesiąc pierwszy: faza miłości. "Jihae jest taka systematyczna!" - pisałam do mamy. "Nauczy mnie dyscypliny!"
 
-– W sypialni! – odkrzyknął.
+Miesiąc drugi: faza zniecierpliwienia. "Nie mogę znaleźć swoich rzeczy, bo ktoś je ciągle 'organizuje'."
 
-Przeszłam przez pusty salon – dosłownie pusty, tylko gołe ściany i podłoga – do sypialni. Minho stał przy łóżku (jedynym meblu w pokoju) i układał swoje rzeczy w... trzech pudełkach.
+Miesiąc trzeci: faza otwartej wojny. Zostawiałam skarpetki w różnych miejscach jak pułapki. Ona wynajdywała je w dziesięć minut i składała w kosteczki.
 
-– Gdzie reszta twoich rzeczy? – zapytałam.
+Punkt kulminacyjny przyszedł, gdy kupiłam doniczkę z kwiatkiem i postawiłam na parapecie. Wróciłam z uczelni, a kwiatek stał na specjalnej podkładce, w idealnym kącie, otoczony drobnymi kamyczkami jak w świątyni zen.
 
-– To wszystko – odpowiedział z dumą. – Zmieściłem całe życie w trzy pudełka! Czyż to nie piękne?
+"Jihae" - zapukałam do jej pokoju. "Czy ty przenosiłaś mój kwiat?"
 
-Przyjrzałam się bliżej. Pudełko numer jeden: ubrania (siedem identycznych białych koszulek, trzy pary dżinsów, bielizna). Pudełko numer dwa: elektronika (laptop, ładowarki, słuchawki). Pudełko numer trzy: rzeczy osobiste (dwa zdjęcia, notes, długopis, kubek).
+"Poprawiłam jego położenie" - odpowiedziała, nie odwracając się od biurka. "Teraz harmonizuje z resztą przestrzeni."
 
-– A... meble? – zapytałam ostrożnie.
+"Ale ja go postawiłam tam, gdzie chciałam!"
 
-– Mamy łóżko – wskazał na materac na stelażu. – Czego więcej potrzeba?
+"Tam gdzie był, zakłócał feng shui salonu."
 
-– Na przykład... szafy? Stołu? Krzeseł? Sofy?
+Feng shui. W warszawskim bloku z 1975 roku.
 
-Minho spojrzał na mnie jak na osobę, która proponuje kupno jednorożca.
+Usiadłam na swoim rozkładanym łóżku i zaczęłam płakać. Nie z żalu, ale z bezsilności. Każdy gest, każdy przedmiot, każdy oddech wydawał się zakłócać niewidzialny porządek, który Jihae nosiła w głowie jak mapę skarbu.
 
-– Po co? Ubrania można trzymać w pudełku. Jeść można na podłodze. To bardzo zdrowe dla kręgosłupa!
+Nagle usłyszałam pukanie do drzwi mojego pokoju.
 
-Pomyślałam, że żartuje. Następnego dnia przyjechała ciężarówka z moimi rzeczami. Kierowca i dwóch panów od przeprowadzek zaczęli wnosić pudła.
+"Magda?" - Jihae wsunęła głowę przez szparę. "Czy ty płaczesz?"
 
-– To do którego mieszkania? – zapytał kierowca po wniesieniu dwudziestego kartonu.
+"Nie" - warknęłam przez łzy.
 
-– Do dwudziestki – odpowiedziałam.
+Weszła z kubkiem herbaty. Usiadła na podłodze obok łóżka, zupełnie niszcząc swój własny porządek przestrzenny.
 
-– Ale tam już wnieśliśmy z piętnaście pudeł...
+"Powiedz mi, o co chodzi."
 
-– To dopiero początek – westchnęłam.
+I wtedy wydusiłam z siebie całą prawdę. Że czuję się jak intruz we własnym domu. Że boję się dotknąć czegokolwiek, bo od razu zostanie to 'poprawione'. Że chcę móc zostawić kubek na stole bez poczucia winy. Że potrzebuję chaosu, żeby myśleć. Że mój kwiatek był szczęśliwy na parapecie, choćby nawet zakłócał kosmiczny porządek wszechświata.
 
-Minho obserwował całą operację z rosnącym przerażeniem. Kiedy panowie wnieśli moją ukochaną biblioteczkę z Ikei, złapał się za głowę.
+Jihae słuchała, popijając herbatę z mojego brudnego kubka "I love NY".
 
-– Co to jest?! – wykrzyknął.
+"Wiesz" - powiedziała po chwili - "moja poprzednia współlokatorka była Japonka. Myślałam, że będzie łatwo, bo obie lubimy porządek. Ale ona zostawiała buty w korytarzu w idealnej linii prostej, a ja uważam, że powinny stać pod kątem czterdziestu pięciu stopni. Przez pół roku przesuwałyśmy sobie nawzajem buty."
 
-– Biblioteczka – odpowiedziałam spokojnie.
+Zaśmiałam się przez łzy.
 
-– Ale... ale ona jest OGROMNA!
+"I co się stało?"
 
-Spojrzałam na całkiem standardową biblioteczkę Billy z pięcioma półkami.
+"Wprowadziliśmy system zonal. Miała swoją strefę butów, ja swoją."
 
-– To normalna biblioteczka...
+Następnego dnia wróciłam z uczelni i zobaczyłam coś, czego się nie spodziewałam. W salonie, dokładnie pośrodku idealnie czystego stołu, stał mój kubek "I love NY" z resztkami porannej kawy. Obok leżała moja książka, otwarta na stronie, gdzie przerwałam czytanie. Na parapecie kwiatek wrócił na swoje pierwotne miejsce - w poprzek feng shui całego mieszkania.
 
-– Na co ci tyle półek?!
+Jihae wyjrzała z kuchni.
 
-– Na książki?
+"To jest twoja strefa chaosu" - oznajmiła. "Metr kwadratowy wolności. Możesz tam robić, co chcesz."
 
-– MASZ KSIĄŻKI?!
+"A ty się nie będziesz denerwować?"
 
-I wtedy panowie zaczęli wnosić pudła z książkami. Dwadzieścia ciężkich kartonów pełnych mojej dumy i radości – powieści, poradników, albumów, komiksów, podręczników z studiów, które przysięgałam sobie, że kiedyś przeczytam jeszcze raz.
+"Będę" - uśmiechnęła się. "Ale nauczę się z tym żyć."
 
-Minho usiadł na podłodze w salonie, otoczony górami moich pudeł, i wyglądał jak człowiek, którego świat właśnie się zawalił.
+Od tamtej pory mieliśmy układ. Jihae mogła organizować całe mieszkanie, a ja miałam swój mały kawałek anarchii. Czasem przychodziłam do domu i zastałam, jak stoi nad moją strefą z odkurzaczem w ręku, tocząc wewnętrzną walkę.
 
-– Jadzia... – zaczął słabym głosem. – Co to wszystko jest?
+"Chcesz to posprzątać?" - pytałam.
 
-Zaczęłam wymieniać:
+"Bardzo" - przyznawała.
 
-– No więc, to są książki, to zastawa od babci, tu mam pościel – komplet zimowy i letni, oczywiście, plus zapasowy dla gości. To są moje kubki – mam małą kolekcję, tylko czterdzieści sztuk. Tu dekoracje – na każdą porę roku i święta. To albumy ze zdjęciami, pamiątki z podróży, moja kolekcja słoników...
+"Ale nie możesz?"
 
-– Kolekcja słoników? – powtórzył bezbarwnym głosem.
+"Umowa to umowa."
 
-– Tylko siedemdziesiąt sztuk! Tu mam przybory kuchenne – babcia zawsze mówiła, że dobra gospodyni musi mieć przynajmniej trzy komplety garnków. A to...
+Po roku nasze strefy zaczęły się przenikać. Jihae zostawiała czasem kubek na stole. Ja przejęłam część jej systemu składania rzeczy. Ona nauczyła się siedzieć na podłodze z laptopem. Ja odkryłam, że da się jeść śniadanie w skupieniu zamiast w pędzie.
 
-– STOP! – Minho podniósł rękę. – Jadzia, to mieszkanie ma sześćdziesiąt metrów. Ty masz rzeczy na sześćset!
+Kiedy się wyprowadzałam, spożyłyśmy ostatnią kolację przy stole ustawionym przez nią z japońską precyzją i przy zapalonej przez mnie świeczce, która kapała woskiem na powierzchnię. Żadna z nas nie zauważyła tego wyrysku chaosu, dopóki świeczka nie zgasła.
 
-– Nie przesadzaj! – obruszyłam się. – To wszystko się zmieści. Trzeba tylko dobrze zorganizować przestrzeń.
+"Zobaczysz" - powiedziała Jihae, zdrapując wosk paznokciami - "następna współlokatorka będzie miała zupełnie inne problemy z przestrzenią."
 
-I tak rozpoczęła się nasza wojna.
+Miała rację. Sześć miesięcy później dostałam od niej zdjęcie: w salonie, na środku idealnie czystego stołu, stały cztery kubki, każdy w innym miejscu. Nowy lokator był z Brazylii i uważał, że życie jest za krótkie na składanie naczyń.
 
-**Bitwa pierwsza: Salon**
+Pod zdjęciem Jihae napisała: "Tęsknię za twoją strefą chaosu. Przynajmniej był kontrolowana."
 
-Moja wizja: przytulna kanapa, dwa fotele, stolik kawowy, biblioteczki pod każdą ścianą, komoda pod telewizor, półki na pamiątki, dużo poduszek, koce, dywany, zasłony, obrazy na ścianach, rośliny w każdym rogu.
+Czasem myślę, że najważniejszą rzeczą, jakiej się w tym mieszkaniu nauczyłam, nie było to, jak dzielić przestrzeń, ale jak dzielić siebie. Że można współistnieć z kimś zupełnie innym, nie zmieniając się w tę osobę, ale też nie zmuszając jej do zmiany. Że prawdziwa harmonia nie polega na idealnym porządku, ale na znajdowaniu miejsca dla różnych rodzajów bezładu.
 
-Wizja Minho: mata do jogi.
+I że każdy potrzebuje swojego metra kwadratowego wolności.
 
-– Mata do jogi? – powtórzyłam. – I co jeszcze?
+---
 
-– To wszystko. Przestrzeń do oddychania.
+## wersja 2: sąsiedzkie potyczki miłosne
 
-– A gdzie będziemy oglądać filmy?
+W kamienicy przy Żurawiej mieszkamy wszyscy na kupie jak w filmie Kusturicy, tylko zamiast Bałkanów mamy polski realizm socjalny z nutką kosmopolityzmu. Na pierwszym piętrze mieszka Jihoon, dwudziestosiedmioletni programista z Seulu, który przyjechał do Warszawy za pracą i polską dziewczyną. Dziewczyna szybko odeszła, praca została, a Jihoon siedzi w jednopokojowce i sądził, że zna polskie zwyczaje.
 
-– Na macie.
+Nie znał.
 
-– A gdzie postawimy telewizor?
+Na tym samym piętrze, po drugiej stronie korytarza, mieszka Pani Halinka z psem Azorem. Azor ma opinię i lubi ją wyrażać, zwłaszcza o trzeciej nad ranem. Pani Halinka ma siedemdziesiąt lat, trzy wojenne historie na każdą okazję i przekonanie, że wszyscy mężczyźni są nieco głupsi niż przewiduje prawo natury.
 
-– Po co nam telewizor? Mamy laptopa.
+Pierwsze starcie nastąpiło w poniedziałek o siódmej rano.
 
-– A gdzie będziemy przyjmować gości?
+Jihoon wyszedł z mieszkania w samych skarpetkach, żeby wyrzucić śmieci. W Korei to normalne - budynki mieszkalne mają swoją etykietę, kapcie zostawia się przed drzwiami, chodzi się po korytarzach jak u siebie w domu. W Polsce to jest kompletne nieporozumienie.
 
-– Na macie.
+Pani Halinka akurat wychodziła z Azorem na spacer.
 
-– Minho, nie możemy wszystkiego robić na macie do jogi!
+"Młody człowieku!" - zaatakowała od progu. "Co to ma znaczyć? Chodzi pan po klatce jak w domu!"
 
-– Czemu nie? W Korei moja babcia całe życie spędziła na podłodze i dożyła dziewięćdziesięciu lat!
+Jihoon zatrzymał się z workiem śmieci w ręku. Angielski Pani Halinki kończył się na "yes" i "no", koreański Pani Halinki był nieistniejący. Rozumieli się gestykulacją i intuicją.
 
-Próbowałam kompromisu. Zgodziłam się na mniejszą kanapę ("dwuosobowa zamiast narożnika"), jeden fotel zamiast dwóch ("ale z podnóżkiem!"), tylko trzy biblioteczki zamiast pięciu ("to i tak o dwie za dużo" – marudził Minho).
+"Sorry, sorry" - zasalutował Jihoon po polsku, jedynym słowem, które znał na wszystkie okazje.
 
-Kiedy skończyliśmy urządzać salon według naszego "kompromisu", Minho stanął w drzwiach i pokręcił głową.
+"Nie 'sorry'! Buty!" - Pani Halinka wskazała na jego stopy. "Na chodnik - buty!"
 
-– Nie mogę tu oddychać – oznajmił dramatycznie.
+Jihoon pobiegł do mieszkania po buty. Wrócił w pełnym umundurowaniu: eleganckie pantofle, garnitur, teczka. Żeby wyrzucić śmieci na koniec korytarza.
 
-– Oddychasz normalnie – zauważyłam.
+Pani Halinka pokręciła głową i poszła z Azorem, mamrocząc coś o "dziwnych czasach" i "młodzieży bez wychowania".
 
-– Duchowo! Nie mogę oddychać duchowo! Ta przestrzeń jest zaduszona rzeczami!
+To było dopiero preludium.
 
-– To normalne mieszkanie!
+Kiedy Jihoon zrozumiał, że w Polsce korytarz to przestrzeń publiczna, a nie przedłużenie mieszkania, zaczął nosić buty. Ale zostawiał je pod drzwiami, bo przecież nie będzie brudzić mieszkania butami z zewnątrz. Logiczne.
 
-– W Seulu mieszkałem w przestrzeni dwa razy mniejszej i miałem dwa razy więcej miejsca!
+Dla Pani Halinki jednak buty pod drzwiami to była prowokacja. Po pierwsze - korytarz się zapchał. Po drugie - kto zostawia dobre pantofle bez opieki? Po trzecie - Azor lubił węszyć w cudzych butach, co Panią Halinkę kompromitowało.
 
-– Bo nie miałeś NIC!
+Kryzys nastąpił w czwartek.
 
-– Właśnie! Piękne, prawda?
+Jihoon wrócił z pracy i stwierdził, że jego buty są idealnie wyczyszczone i postawione w równym rzędzie. Pomyślał, że to miła usługa sprzątającej. Napisał po angielsku karteczkę: "Thank you for cleaning my shoes!" i przyczepił do drzwi.
 
-**Bitwa druga: Kuchnia**
+Pani Halinka przeczytała karteczkę z pomocą syna, który przyszedł w odwiedziny.
 
-Tu myślałam, że będzie łatwiej. W końcu oboje lubimy gotować. Jak bardzo różne mogą być nasze podejścia do kuchni?
+"Mama, on dziękuje za wyczyszczenie butów."
 
-Bardzo różne.
+"Jakie wyczyszczenie? Ja mu te buty przesunęłam, żeby Azor nie chędożył!"
 
-Minho chciał: jeden nóż, jedną patelnię, jeden garnek, dwie miski, dwa talerze, dwa kubki, pałeczki.
+"Mama, może on nie wie..."
 
-Ja rozpakowałam: dwanaście kompletów talerzy (codzienne, świąteczne i "na wszelki wypadek"), sztućce od prababci, zastawa do kawy od cioci, kolekcja kubków, siedem różnych rodzajów szklanek ("do wody, soku, wina białego, wina czerwonego, szampana, whisky i do mleka" – wyjaśniłam), formy do ciast, maszynka do mielenia mięsa po dziadku, krajalnica do jajek ("Krajalnica do JAJEK?!" – krzyczał Minho), komplet garnków od mamy, patelnie wszystkich rozmiarów, mikser, blender, sokowirówka, ekspres do kawy, czajnik elektryczny, toster, opiekacz, gofrownica...
+"To się nauczy!"
 
-– GOFROWNICA?! – Minho trzymał się za głowę. – Kiedy ostatnio robiłaś gofry?!
+Pani Halinka napisała odpowiedź po polsku wielkimi literami: "NIE ZOSTAWIAĆ BUTÓW W KORYTARZU. TO NIE KOREA."
 
-– No... jeszcze nigdy, ale jak będę chciała, to będę mogła!
+Jihoon zrozumiał "Korea" i pomyślał, że to otwarte zaproszenie do dialogu kulturowego. Tego samego wieczoru zawisła na jego drzwiach obszerna odpowiedź po angielsku, w której wyjaśniał koreańskie zwyczaje dotyczące butów, hierarchii społecznych i szacunku dla starszych. Skończył propozycją wspólnej kawy i rozmowy o różnicach kulturowych.
 
-– Jadzia, zmieściłabyś tu małą restaurację!
+Pani Halinka pokazała list synowi przez telefon.
 
-– Lubię być przygotowana!
+"Mama, on chce się z tobą umówić na kawę."
 
-– Na co? Na oblężenie?!
+"Co takiego?!"
 
-Kompromis w kuchni polegał na tym, że zgodziłam się schować część rzeczy do piwnicy ("Tymczasowo!" – zastrzegłam), ale tylko te, których "na pewno" nie użyjemy w najbliższym czasie. Po godzinie negocjacji do piwnicy powędrowała krajalnica do jajek, formy do ciast w kształcie serc i maszynka do mielenia mięsa.
+"Żeby porozmawiać o kulturach."
 
-Reszta została.
+"Zaraz, zaraz... Ten Azjata podrywać mnie? W moim wieku?"
 
-– Gdzie ja mam gotować? – jęknął Minho, patrząc na blat kuchenny zastawiony sprzętami.
+"Mama, to nie podrywanie, to dialog kulturowy."
 
-– Normalnie! Tu jest miejsce! – wskazałam wolne trzydzieści centymetrów między tosterem a mikserem.
+"Każdy dialog z mężczyzną to podrywanie. Nie zmieniło się to przez siedemdziesiąt lat."
 
-– To nie jest miejsce, to jest szczelina!
+Następnego dnia Jihoon zastał pod drzwiami torbę polskich słodyczy i kartkę: "DZIĘKUJĘ ZA ZAPROSZENIE. JESTEM ZAMĘŻNA Z AZOREM."
 
-**Bitwa trzecia: Sypialnia**
+Jihoon pomyślał, że Azor to mąż Pani Halinki, i przez kolejny tydzień kłaniał się grzecznie temu małemu, wściekłemu psu za każdym razem, gdy go spotykał.
 
-Tu Minho był nieugięty.
+Pani Halinka zauważyła, że młody Azjata kłania się jej psu jak dostojnikowi, i zaczęła podejrzewać, że może to wcale nie był zalot, ale jakaś specyficzna forma grzeczności.
 
-– Sypialnia to sanktuarium – oznajmił. – Tylko łóżko i szafa. Koniec.
+Przełom nastąpił w niedzielę, gdy na klatce wybuchł pożar - nie dosłownie, ale prawie. Sąsiad z parteru zapalił olej na patelni i zadymił całą klatkę. Alarm pożarowy, otwarte wszystkie okna, ludzie wybiegli na korytarz w piżamach.
 
-– A toaletka?
+Jihoon bez namysłu wziął Panią Halinkę pod rękę i wyprowadził na podwórko. Azor biegł za nimi, szczekając na dym jak na wroga. Kiedy wszystko się skończyło i wracali na górę, Pani Halinka po raz pierwszy przyjrzała się temu młodemu człowiekowi porządnie.
 
-– Nie.
+"Masz dziewczynę?" zapytała po polsku, powoli i wyraźnie.
 
-– Komoda?
+"No girlfriend" odpowiedział Jihoon po angielsku.
 
-– Nie.
+"Hmm" pani Halinka wyciągnęła telefon. "Marcin! Twoja Kasia ma tę koleżankę, co angielskiego uczy? Tę wysoką? No to ją przyprowadź w niedzielę na obiad. Mam tu sąsiada, samotny."
 
-– Chociaż jeden fotel do czytania?
+Jihoon nie rozumiał ani słowa, ale zrozumiał intencję. Pokłonił się głęboko. Pani Halinka odwachała ręką i powiedziała coś, co brzmiało jak przekleństwo, ale Azor zamerdał ogonkiem, więc chyba było pozytywnie.
 
-– NIE.
+W następną niedzielę Jihoon przyszedł na obiad w pełnym garniturze, z kwiatami dla Pani Halinki i specjalnymi przysmakamj dla Azora. Kasia, koleżanka Kaśki syna Pani Halinki, okazała się być miłą dziewczyną z magistrem z filologii angielskiej i słabością do mężczyzn, którzy potrafią się elegancko pokłonić.
 
-– To gdzie mam trzymać kosmetyki?
+Sześć miesięcy później Jihoon i Kasia zaręczyli się na klatce schodowej. Pani Halinka była świadkiem, Azor był świadkiem Azora.
 
-– W łazience.
+Na ślubie Pani Halinka siedziała w pierwszym rzędzie z Azorem na kolanach. Kiedy młoda para składała przysięgę, jeden po polsku, drugi po koreańsku, Azor warknął aprobująco.
 
-– Biżuterię?
+Potem Pani Halinka powiedziała wszystkim, że od początku wiedziała, że ten młody człowiek to porządny chłopak. Że te buty pod drzwiami to była his culture, a nie złe wychowanie. I że każda porządna babcia powinna mieć z pół tuzina międzynarodowych wnuków, żeby było ciekawiej.
 
-– W szafie.
+Dzisiaj Jihoon z Kasią mieszkają na drugim piętrze. Buty wciąż zostawiają pod drzwiami, ale teraz już cała klatka zostawia, bo Pani Halinka stwierdziła, że to "bardzo praktyczne" i "czego to jej nikt wcześniej nie powiedział". Azor jest dumnym ojcem chrzestnym dwóch polsko-koreańskich bliźniaków, które potrafią szczekać w trzech językach.
 
-– Książkę, którą czytam przed snem?
+A Pani Halinka została nieoficjalną swatką dla wszystkich samotnych obcokrajowców w kamienicy. W każdą niedzielę robi obiad dla kogoś nowego i mówi: "Zobaczysz, znajdę ci porządną polską dziewczynę. Ale najpierw naucz się w butach chodzić po klatce."
 
-– Pod poduszką.
+W tej kamienicy przestrzeń życiowa to nie tylko mieszkanie. To korytarz, gdzie buty mają swoją dyplomację. Klatka schodowa, gdzie sąsiedzi uczą się od siebie nawzajem, co znaczy "dom". I serce Pani Halinki, które okazało się mieć więcej miejsca, niż początkowo zakładano.
 
-– A lampkę nocną?
+Bo czasem o przestrzeń życiową warto walczyć nie siłą, ale gotowością na to, że ktoś może ją z nami dzielić.
 
-Minho westchnął.
+---
 
-– Dobrze. Dwie lampki nocne. Ale to KONIEC.
+## wersja 3: instrukcja obsługi obcokrajowca
 
-Oczywiście to nie był koniec. Przemyciłam do sypialni małą komodę ("To nie komoda, to szafka nocna! Tylko trochę większa!"), lusterko ("Muszę się gdzieś czesać!"), półkę na książki ("Tylko na te, które aktualnie czytam! Maksymalnie dwadzieścia!").
+**INSTRUKCJA OBSŁUGI MODELU JIHOON-KR-WRSW-2024**  
+*Programista pochodzenia koreańskiego z aktywowanym trybem adaptation-to-poland*
 
-Minho próbował kontrnatarcia. Pewnego dnia wróciłam do domu i odkryłam, że połowa moich rzeczy zniknęła z sypialni.
+### ROZDZIAŁ 1: pierwsze uruchomienie
 
-– Gdzie moja komoda?! – wrzasnęłam.
+**UWAGA:** Przed rozpoczęciem eksploatacji należy uważnie przeczytać całą instrukcję. Niewłaściwe użytkowanie może skutkować konfliktami międzykulturowymi, zalewaniem łazienki lub przypadkowym założeniem koreańskiego kościoła metodystycznego w mieszkaniu.
 
-– To była szafka nocna – poprawił mnie spokojnie. – Jest w salonie. Teraz to stolik kawowy.
+**ZAWARTOŚĆ OPAKOWANIA:**
+- 1x Jihoon (kompletny, z kartą pamięci zawierającą znajomość 247 sposobów przygotowania ryżu)
+- 1x zestaw polskich słów podstawowych ("przepraszam", "dziękuję", "gdzie jest toaleta")
+- 1x instrukcja hierarchii społecznych w Korei (niekompatybilna z systemem polskim)
+- 1x moduł błędnego tłumacza kulturowego
+- Brak instrukcji obsługi polskich teściowych (sprzedawana oddzielnie)
 
-– Minho!
+**PODSTAWOWE PARAMETRY TECHNICZNE:**
+- Wymiary: 175 cm wzrostu, niezdefiniowana szerokość gdy założone zimowe kurtki
+- Zasilanie: ryż + kimchi + kawa (uwaga: nie kawa rozpuszczalna!)
+- Kompatybilność językowa: koreański (100%), angielski (85%), polski (12% i systematycznie rośnie)
+- System operacyjny: Confucius 2.5 z próbą aktualizacji do Windows-Poland
+- Funkcje dodatkowe: automatyczne kłanianie się starszym, wbudowany system prezentów na wszystkie okazje
 
-– Co? Wykorzystuję przestrzeń kreatywnie!
+### ROZDZIAŁ 2: instalacja w mieszkaniu polskim
 
-**Bitwa czwarta: Łazienka**
+**KROK 1: Przygotowanie przestrzeni**
 
-Łazienka stała się naszym polem bitwy o każdy centymetr półki. Minho potrzebował: szczoteczki do zębów, pasty, maszynki do golenia, szamponu. Koniec.
+Przed wprowadzeniem modelu do mieszkania, należy zabezpieczyć:
+- Wszystkie buty (model ma tendencję do automatycznego zdejmowania ich przy wejściu)
+- Akcesoria łazienkowe (może próbować umyć zęby prysznicem)
+- Stół jadalny (model może próbować jeść bezpośrednio z garnków stojących na środku)
 
-Ja miałam: dwadzieścia buteleczek do pielęgnacji włosów, piętnaście kremów do różnych części ciała, maseczki, peelingi, olejki, perfumy, lakiery do paznokci, przybory do makijażu...
+**PROBLEM CZĘSTO WYSTĘPUJĄCY #001:**
+Model zostawia buty przy wejściu i chodzi po mieszkaniu w skarpetkach.
 
-– Co to jest? – Minho trzymał buteleczkę.
+**ROZWIĄZANIE:**
+To nie jest usterka. To cecha systemu. Adaptacja modelu polskiego użytkownika wymaga czasu. Można przyspieszyć proces, zapewniając ciepłe kapcie oraz wyjaśnienie, że w Polsce podłogi są zimne i nie każdy ma ondol (ogrzewanie podłogowe).
 
-– Odżywka do włosów suchych i zniszczonych z proteinami jedwabiu.
+**KROK 2: Konfiguracja żywienia**
 
-– A to? – pokazał kolejną.
+Model wymaga minimum trzech posiłków ryżowych dziennie. Próby żywienia chlebem mogą skutkować komunikatem błędu: "To nie jest prawdziwe jedzenie." Rozwiązaniem jest stopniowe wprowadzanie chleba jako "specjalnego typu ryżu w wersji europejskiej".
 
-– Odżywka do włosów farbowanych z olejkiem arganowym.
+**OSTRZEŻENIE:** Model może próbować dzielić się jedzeniem, nakładając ze swojego talerza na talerz użytkownika. To nie jest usterka, ale funkcja sharing_is_caring. Można wyłączyć w ustawieniach kulturowych, ale nie jest zalecane - funkcja bardzo poprawia działanie trybu relationship.
 
-– A to?
+### ROZDZIAŁ 3: codzienne użytkowanie
 
-– Odżywka do włosów kręconych z masłem shea.
+**TRYB ROZMOWA:**
+Model domyślnie ustawiony jest na listening_mode z aktywnym filtrem hierarchicznym. Oznacza to, że:
+- Nie przerywa starszym osobom
+- Nie wyraża sprzeciwu bezpośrednio
+- Mówi "może" zamiast "nie"
 
-– Jadzia... masz proste włosy.
+**DEKODOWANIE KOMUNIKATÓW:**
+- "Może lepiej nie" = "Absolutnie nie, ale nie chcę być nieuprzejmy"
+- "To interesujące" = "To najgłupsza rzecz, jaką słyszałem"
+- "Jak myślisz" = "Błagam, podejmij decyzję za mnie"
 
-– Ale czasem je kręcę!
+**FUNKCJA PREZENTY:**
+Model wyposażony w automatyczne generowanie prezentów na każdą okazję. Lista okazji obejmuje, ale nie ogranicza się do:
+- Dzień po pierwszym spotkaniu
+- Miesięcznica związku
+- Setny dzień związku
+- Rocznica pierwszego wspólnego obiadu
+- Dzień, gdy padał deszcz i użytkownik nie miał parasola
 
-– RAZ. Widziałem raz!
+**TROUBLESHOOTING:** Jeśli model przestanie dawać prezenty, prawdopodobnie jest obrażony lub myśli, że związek nie jest poważny. Remedium: zapytać wprost "Czy jesteś obrażony?" Nie pytać "Co ci jest", bo to aktywuje self-destruct mode.
 
-Kompromis: wynegocjowałam dwie półki dla siebie, Minho dostał pół półki. Sprawiedliwe? Nie. Konieczne? Absolutnie.
+### ROZDZIAŁ 4: problemy z kompatybilnością
 
-**Punkt kulminacyjny: Przyjęcie noworoczne**
+**ERROR #101: Model nie radzi sobie z polską babcią**
+Symptomy: Nadmierne kłanianie, próby całowania w rękę, shock przy otrzymaniu klapsa za "chudość"
 
-Szczyt naszej wojny nastąpił, gdy postanowiliśmy zorganizować małe przyjęcie noworoczne. "Małe" w mojej interpretacji oznaczało dwadzieścia osób. "Małe" w interpretacji Minho oznaczało cztery.
+Rozwiązanie: Instalacja pakietu polish_babcia_handling. Zawiera moduły:
+- accept_food_overload.exe
+- respond_to_personal_questions.dll
+- survive_interrogation_about_salary.sys
 
-– Jadzia, gdzie oni wszyscy usiądą?! – panikował.
+**ERROR #202: Model konfliktuje z polskim rozumieniem punctuality**
+Symptomy: Przychodzi na spotkania 15 minut przed czasem, nerwowo czeka pod drzwiami
 
-– Normalnie! Na kanapie, fotelach, niektórzy na podłodze...
+Rozwiązanie: Modyfikacja ustawień time_sensitivity. Zmiana z "korean_precision" na "polish_flexibility" (plus minus 10 minut to norma).
 
-– Nie ma miejsca na podłodze! Wszędzie są rzeczy!
+**ERROR #303: Model przeciąża łazienkę**
+Symptomy: 45-minutowe prysznice, sklep kosmetyków na półce, próby instalacji ondol
 
-– To są dekoracje świąteczne!
+Rozwiązanie: Wyłączenie trybu korean_skincare. UWAGA: może skutkować spadkiem atrakcyjności modelu, użytkować na własną odpowiedzialność.
 
-– Dlaczego potrzebujemy trzech choinek?!
+### ROZDZIAŁ 5: aktualizacje systemu
 
-– To nie są trzy choinki! To choinka, choinka na balkon i mała choinka do kuchni!
+**AKTUALIZACJA v2.1: Zwiększona znajomość polskich przekleństw**
+- Model nauczył się rozróżniać "kurwa" emocjonalną od "kurwy" agresywnej
+- Dodano moduł automatic_bless_you po kichnięciu
+- Poprawiono błąd, przez który model próbował kłaniać się każdemu starszemu w tramwaju
 
-– I te wszystkie światełka...
+**AKTUALIZACJA v2.3: Poprawiona kompatybilność z polskim systemem medycznym**
+- Model przestał pisać do prywatnego lekarza z każdym katarem
+- Dodano funkcję queuing_patience dla poradni publicznych
+- Poprawiono moduł insurance_understanding (wciąż beta)
 
-– To girlandy! Stwarzają nastrój!
+**AKTUALIZACJA v3.0: Polski christmas.exe**
+- Model nauczył się jeść 12 potraw wigilijnych bez mdłości
+- Dodano funkcję family_politics_avoidance
+- Poprawiono reakcję na śpiewanie kolęd (przestał nagrywać na telefon)
 
-– Jedyny nastrój, jaki stwarzają, to klaustrofobia!
+### ROZDZIAŁ 6: konserwacja długoterminowa
 
-Wieczór sylwestrowy. Goście zaczęli przychodzić. Pierwsze problemy pojawiły się, gdy moja mama próbowała powiesić płaszcz.
+**OKRESOWE CZYNNOŚCI KONSERWACYJNE:**
 
-– Jadziu, gdzie jest wieszak? – zapytała.
+*Co miesiąc:*
+- Sprawdzenie poziomu kimchi w lodówce
+- Test funkcji video_call_with_korean_parents
+- Diagnostyka modułu sending_money_home
 
-– W szafie w przedpokoju!
+*Co kwartał:*
+- Resetowanie tęsknoty za koreańskim jedzeniem (wycieczka do azjatyckiej dzielnicy)
+- Aktualizacja słownika polskiego (dodanie nowych wulgaryzmów)
+- Test kompatybilności z polskimi świętami
 
-– Ale szafa jest pełna!
+*Co rok:*
+- Pełna diagnostyka systemu podczas wizyty w Korei
+- Resetowanie shock_at_korean_hierarchy po powrocie do Polski
+- Upgrade modułu explain_poland_to_korean_parents
 
-Rzeczywiście. Szafa w przedpokoju pękała w szwach od naszych kurtek (moje: zimowa długa, zimowa krótka, przejściowa długa, przejściowa krótka, wiosenna, przeciwdeszczowa, sportowa...).
+### ROZDZIAŁ 7: tryb zaawansowany - zarządzanie przestrzenią życiową
 
-– Możesz położyć płaszcz w sypialni! – zawołałam z kuchni.
+**MODUŁ LIVING_SPACE_MANAGEMENT:**
 
-Ale w sypialni na łóżku leżała już góra płaszczy, bo wszyscy mieli ten sam pomysł.
+Model standardowo wyposażony w Korean_minimalism.exe i Polish_accumulation.dll - te programy są w permanentnym konflikcie systemowym.
 
-Kolejny problem: jedzenie. Przygotowałam tradycyjny polski stół – sałatki, śledzie, zimne mięsa, ciasta... Minho zrobił koreański makaron i kimchi.
+**CHARAKTERYSTYCZNE ZACHOWANIA:**
+- Model będzie próbował zostawiać buty przy wejściu (Korean_custom.ini)
+- Model może nie rozumieć funkcji poduszek ozdobnych
+- Model będzie zmywał naczynia natychmiast po każdym posiłku
+- Model może próbować spać na podłodze ("bardziej zdrow dla kręgosłupa")
 
-– Gdzie to postawimy? – zapytał, trzymając garniec z makaronem.
+**KONFLIKT #404: Incompatible_organization_systems**
 
-Spojrzałam na stół uginający się pod ciężarem potraw.
+Model operuje na założeniu: "mniej rzeczy = więcej miejsca = więcej pokoju"
+System polski operuje na: "więcej rzeczy = więcej opcji = więcej bezpieczeństwa"
 
-– Może na blacie w kuchni?
+**DIAGNOSTYKA PROBLEMU:**
+1. Model stoi w centrum pokoju i oddycha głęboko
+2. Model macha rękami jak gdyby odpędzał niewidzialne przedmioty
+3. Model wydaje dźwięki typu "za dużo, za dużo" 
+4. Model próbuje schować rzeczy użytkownika do szaf/pudel
 
-– Blat jest zajęty przez twoje roboty kuchenne!
+**ROZWIĄZANIE KOMPROMISOWE:**
+Instalacja systemu Zone_management:
+- create_minimalist_zone.exe (dla modelu)
+- create_accumulation_zone.exe (dla użytkownika) 
+- negotiate_shared_spaces.dll (najważniejszy moduł)
 
-– To nie roboty, to mikser!
+### ROZDZIAŁ 8: sytuacje kryzysowe
 
-– I toster, i ekspres, i sokowirówka, i...
+**KRYZYS #001: Model próbuje wyrzucić rzeczy użytkownika**
+Symptomy: Znikają przedmioty "niepotrzebne", model twierdzi, że "organizuje przestrzeń"
 
-– Dobra, dobra! Postaw na komodzie w salonie!
+Rozwiązanie: Wprowadzenie systemu permission_before_moving. Model musi zapytać o zgodę przed przeniesieniem jakiegokolwiek przedmiotu.
 
-– To nie komoda, to szafka nocna! – przypomniał mi złośliwie.
+**KRYZYS #002: Model nie może znaleźć miejsca na swoje rzeczy**
+Symptomy: Model siedzi na podłodze z trzema pudełkami i płacze
 
-Goście próbowali się zmieścić w salonie. Dwadzieścia osób w przestrzeni urządzonej według kompromisu polsko-koreańskiego to był widok. Część siedziała na kanapie i fotelu, część na dostawionych krzesłach z kuchni, kilka osób na podłodze między meblami.
+Rozwiązanie: Stworzenie designated_korean_space - metr kwadratowy z matą do jogi i pustą ścianą.
 
-– Przytulnie tu u was! – zawołała moja przyjaciółka Ania, przeciskając się między stolikiem kawowym a biblioteczką.
+**KRYZYS #003: Model odmawia użytkowania mebli "niepotrzebnych"**
+Symptomy: Model je kolację stojąc, śpi na podłodze, odmawia korzystania z fotela
 
-– Bardzo... blisko wszyscy jesteśmy! – dodał jej chłopak, przygnieciony między dwoma osobami na kanapie.
+Rozwiązanie: Stopniowa terapia ekspozycyjna. Zacząć od 5 minut siedzenia na kanapie dziennie, zwiększać co tydzień.
 
-Minho chodził po mieszkaniu jak tygrys w klatce, próbując znaleźć kawałek wolnej przestrzeni. W końcu wyszedł na balkon i tam spędził pół wieczoru, "oddychając".
+### ROZDZIAŁ 9: optymalizacja wydajności
 
-Kulminacja nastąpiła o północy. Wszyscy chcieli wznieść toast, ale okazało się, że nie ma miejsca, żeby wszyscy mogli stanąć jednocześnie. Próbowaliśmy różnych konfiguracji – część osób w salonie, część w kuchni, ktoś w przedpokoju...
+**USTAWIENIA ZAAWANSOWANE:**
 
-– To jak Tetris! – śmiał się ktoś.
+*Tryb kompromisu:*
+- Model akceptuje do 50% więcej przedmiotów niż uważa za idealne
+- Użytkownik pozbywa się 30% rzeczy uznawanych za "konieczne"
+- Obaj uczą się pojęcia "tymczasowe rozwiązanie"
 
-– Albo jak metro w godzinach szczytu! – dodał ktoś inny.
+*Tryb adaptacyjny:*
+- Model odkrywa, że poduszki ozdobne mogą być wygodne
+- Model uczy się, że czasem warto mieć zapasową pościel
+- Model przyznaje, że duża biblioteczka to nie jest katastrofa
 
-W końcu wznieśliśmy toast "na raty" – najpierw połowa gości, potem druga połowa.
+*Tryb fusion:*
+- Mieszkanie połowi minimalistyczne, połowy "normalne"
+- Jedna ściana pusta (dla modelu), trzy pełne (dla użytkownika)
+- Kompromis w każdym pomieszczeniu
 
-Po przyjęciu, gdy sprzątaliśmy mieszkanie, Minho usiadł na podłodze (jedynym wolnym miejscu) i spojrzał na mnie poważnie.
+### ROZDZIAŁ 10: gwarancja i reklamacje
 
-– Jadzia, tak nie możemy żyć.
+**OKRES GWARANCJI:** Funkcje podstawowe - 2 lata, adaptacja kulturowa - 5 lat, pełna integracja space_management - dożywotnie
 
-Serce mi zamarło. Czy to koniec? Czy różnice kulturowe w podejściu do przestrzeni mieszkalnej zniszczą nasz związek?
+**PRZYPADKI NIE OBJĘTE GWARANCJĄ:**
+- Uszkodzenia spowodowane wizytą polskiej teściowej
+- Problemy wynikające z próby tłumaczenia feng shui polskiej babci
+- Błędy w działaniu po ekspozycji na polskie magazyny wnętrzarskie
+- Konflikt systemu po wizycie w IKEA
 
-– Musimy znaleźć rozwiązanie – kontynuował. – Ja nie mogę żyć w magazynie...
+**SERWIS I POMOC TECHNICZNA:**
+W przypadku poważnych problemów skontaktuj się z Korean Community Center w Warszawie lub grupą Facebook "Polsko-Koreańskie Pary". Eksprezowa pomoc w języku polskim i koreańskim dostępna 24/7.
 
-– To nie magazyn! – obruszyłam się.
+**UWAGA KOŃCOWA:**
+Model Jihoon-KR jest produktem wysokiej jakości, ale wymaga cierpliwości i zrozumienia w procesie adaptacji. Pamiętaj, że różnice kulturowe w podejściu do przestrzeni życiowej mogą być źródłem konfliktów, ale też fascynujących odkryć.
 
-– ...a ty nie możesz żyć w pustce. Musi być jakiś środek.
+Po około roku eksploatacji model powinien być w pełni zintegrowany z polskim środowiskiem, zachowując jednocześnie swoje unikalne cechy koreańskie. Wtedy mieszkanie stanie się prawdziwym home - miejscem, gdzie feng shui spotyka się z polskim "jakoś to będzie", a mata do jogi sąsiaduje z poduszkami ozdobnymi.
 
-**Negocjacje pokojowe**
+**ŻYCZYMY UDANEJ EKSPLOATACJI I SZCZĘŚLIWEGO WSPÓŁJAMIESZKANIA!**
 
-Następnego dnia usiedliśmy do poważnych negocjacji. Zrobiliśmy listę – co jest naprawdę potrzebne, a z czego możemy zrezygnować.
+---
 
-– Zacznijmy od książek – zaproponował Minho. – Naprawdę potrzebujesz wszystkich?
+## wersja 4: kalejdoskop nieporozumień
 
-– One wszystkie są ważne!
+### pierwszy obraz: buty na klatce
 
-– Nawet ta? – podniósł podręcznik do biochemii z pierwszego roku studiów.
+*z perspektywy sznurowadeł w Adidasa*
 
-– No... może nie wszystkie – przyznałam niechętnie.
+Stoję tu już trzeci dzień. Prawy i lewy, grzecznie ustawione pod drzwiami 23B. Czarne, błyszczące, świeżo wyczyszczone. Widać, że ich właściciel ma do mnie szacunek - każdego ranka wyciera nas ściereczką, sprawdza sznurowadła, poprawia język.
 
-Przejrzeliśmy książki. Okazało się, że mogę oddać do biblioteki publicznej podręczniki, które "kiedyś przeczytam jeszcze raz" (czyli nigdy), powtarzające się tytuły (czemu miałam trzy egzemplarze "Małego Księcia"?) i książki, które dostałam w prezencie, ale szczerze mówiąc, nie podobały mi się.
+Ale ta stara kobieta z naprzeciwka stale na nas spogląda. Wywróciła oczami już z dwadzieścia razy. Jej pies, ten mały, wredny szczeniak, ciągle nas obwąchuje. Mam ochotę kopnąć go w nos, ale jestem but. Buty się nie ruszają.
 
-– Widzisz? – Minho był dumny. – Zwolniłaś całą półkę!
+Słyszę kroki. To on wraca z pracy. Jihoon. Młody, troskliwy, zawsze nas sprawdza czy nie zmoczyliśmy się od deszczu. W Korei wszyscy buty zostają za drzwiami. To naturalne jak oddychanie. Tu, w Warszawie, najwyraźniej buty są osobami non grata na klatce schodowej.
 
-– Ale w zamian... – zaczęłam.
+Dzisiaj stara kobieta podeszła do nas z mopem. Przez chwilę myślałem (o ile but może myśleć), że w końcu ktoś nas doceni. Że dostaniemy porządne czyszczenie.
 
-– Tak?
+Zamiast tego przesunęła nas o metr w lewo, pod ścianę. Westchnęła głęboko i pokręciła głową. Nie wiem, co znaczy "ajajaj" po polsku, ale brzmi to jak skok ze spadochronem - najpierw strach, potem smutek.
 
-– Zgodzisz się na sofę dwuosobową zamiast maty do jogi?
+### drugi obraz: garnek do ryżu
 
-Westchnął.
+*z perspektywy elektromagnetycznego Gourmia GMC-640*
 
-– Zgoda. Ale małą sofę!
+Przyjechałem z daleka, z luksusowego sklepu ze sprzętem AGD. Kosztowałem trzysta złotych, co dla garnka do ryżu to całkiem nieźle. Miałem być początkiem nowego życia dla Jihoona w Warszawie.
 
-Kolejne dni spędziliśmy na reorganizacji. Część moich "kolekcji" trafiła do piwnicy (słoniki), część do mamy (zastawa "na wszelki wypadek"), część na allegro (krajalnica do jajek znalazła szczęśliwego nabywcę!).
+Pierwszego dnia zrobiliśmy przepiękny ryż. Idealny, ziarnko do ziarnka, z tą charakterystyczną elastycznością, której nienawidzą niewłaściwe podniebienia. Jihoon był szczęśliwy. Zjadł dwie porcje i zostawił trzecią na jutro.
 
-W zamian Minho zgodził się na:
-- Sofę (małą, ale jednak!)
-- Jeden fotel ("Ale bez podnóżka!")
-- Dwie biblioteczki ("I ani jednej więcej!")
-- Stolik kawowy ("Najniższy, jaki znajdziemy!")
+Potem przyszła Gosia.
 
-Ja zgodziłam się:
-- Ograniczyć dekoracje do jednego zestawu na sezon
-- Trzymać w kuchni tylko te sprzęty, których używam przynajmniej raz w miesiącu
-- Nie kupować więcej kubków ("Czterdzieści wystarczy!")
-- Zostawić jedną ścianę w salonie pustą ("Do oddychania" – jak mówi Minho)
+Dziewczyna Jihoona jest miłą dwudziestoletnią osobą z polskimi przyzwyczajeniami żywieniowymi. Patrzy na mnie jak na osobę, która przypadkowo wpadła na obiad i nie wie, kiedy wyjść.
 
-**Efekt końcowy**
+"Po co ci taki duży garnek na jeden ryż?" - zapytała pierwszego dnia.
 
-Nasze mieszkanie teraz to dziwna hybryda minimalizmu i maksymalizmu. Wchodzący goście często są zdezorientowani – jedna ściana pusta, druga zastawiona książkami. Minimalistyczna sypialnia sąsiaduje z kuchnią pełną sprzętów (ale już nie WSZYSTKICH sprzętów).
+Jihoon próbował wyjaśnić, że ryż to nie dodatek, ale podstawa, fundament, bez którego posiłek nie jest posiłkiem. Gosia przytaknęła uprzejmie, ale widziałem w jej oczach zdradę.
 
-– To ciekawe podejście do designu – skomentowała moja siostra przy kolejnej wizycie.
+Trzeciego dnia nalała do mnie wody i próbowała ugotować makaron.
 
-– To się nazywa styl polsko-koreański – odpowiedziałam z dumą.
+MAKARON. W GARNKU DO RYŻU.
 
-– Albo kompromis małżeński – dodał Minho.
+Gdybym mógł krzyczeć, krzyczałbym. Gdybym mógł uciekać, dawno byłbym w Azjatyckiej dzielnicy. Zamiast tego musiałem strawić makaronozbiszczenie mojej godności i tożsamości kulinarnej.
 
-Nauczyliśmy się żyć w naszej hybrydalnej przestrzeni. Minho ma swoją "strefę zen" – kawałek salonu z matą do jogi i pustą ścianą. Ja mam swoją "strefę chaosu" – kącik z fotelem, lampką i stosem książek.
+Jihoon próbował delikatnie wyjaśnić, że makaron się gotuje w zwykłym garnku, ale Gosia odpowiedziała, że "garnek to garnek" i że nie ma sensu mieć osobnego sprzętu na każde jedzenie.
 
-Czasem wciąż się sprzeczamy:
+Od tamtego dnia jestem narzędziem wielofunkcyjnym. Gotują we mnie wszystko: warzywa, zupę, kaszę jęczmienną, ziemniaki. Ostatnio Gosia próbowała zrobić we mnie herbatę, ale Jihoon w końcu się wtrącił.
 
-– Jadzia, po co kupowałaś kolejną poduszkę?
+Czasem, późnym wieczorem, gdy myją mnie po kolejnym dniu niewłaściwego użytkowania, słyszę jak Jihoon szepcze do mnie przeprosiny po koreańsku. "Mianhae, garnek-hyung. Wiem, że zasługujesz na lepsze traktowanie."
 
-– To nie poduszka, to jasiek ozdobny!
+Ja też tak myślę. Ale może to jest właśnie miłość - godzenie się na to, że twoja ukochana używa cię do gotowania zupki pomidorowej.
 
-– Jaka różnica?!
+### trzeci obraz: kimchi w słoiku
 
-– Ogromna! Jasiek jest do dekoracji, poduszka do spania!
+*z perspektywy fermentującej kapusty po koreańsku*
 
-– Mamy już piętnaście poduszek ozdobnych!
+Niewielu ludzi wie, że kimchi ma świadomość. Szczególnie to dobrze sfermentowane, które wędrowało w żołądkach przez kilka pokoleń koreańskiej rodziny i zna sekret idealnej kwasowości.
 
-– Jasiek to nie poduszka!
+Siedziałem w lodówce Jihoona od trzech miesięcy. Każdego ranka on brał łyżkę mnie do śniadania. Ja napełniałem jego dzień smakiem domu, wspomnieniami dzieciństwa, matczyny miłością zafermentowaną w soli i chili.
 
-Ale nauczyliśmy się też doceniać swoje podejścia. Kiedy Minho chorował, docenił moje "zapasy" – miałam herbatę na każdą dolegliwość, koc na każdą temperaturę, termometr w trzech wersjach.
+Potem wprowadził się do mieszkania z Gosią.
 
-– Dobrze, że jesteś przygotowana na wszystko – przyznał, opatulony w mój najcieplejszy koc.
+Pierwszego dnia Gosia otworzyła lodówkę, zobaczyła mnie i zapytała: "Co to jest?"
 
-– A ja doceniam twoją przestrzeń do jogi – odpowiedziałam. – Przydaje się, gdy mam dość mojego chaosu.
+Jihoon wyjaśnił: "To kimchi. Koreańska kapusta kwaszona. Bardzo zdrowa."
 
-**Epilog: Rok później**
+Gosia uniosła brew: "Ale dziwnie pachnie."
 
-Minął rok od naszej "wielkiej wojny". Mieszkanie ustabilizowało się w swojej polsko-koreańskiej formie. Nauczyliśmy się żyć między minimalizmem a maksymalizmem.
+Dziwnie pachnie. Jakbym był zepsutym mlekiem, a nie produktem miłosnej pracy matki Jihoona, którą przygotowywała przez trzy dni, szatkując, soląc, przekładając każdy listek ręcznie z intencjami błogosławieństwa dla syna.
 
-Czasem wciąż znajduję rzeczy Minho schowane w dziwnych miejscach (moja kolekcja świeczek zapachowych wylądowała kiedyś w szafce pod zlewem), a on wciąż jęczy, gdy wracam z zakupów ("Co to jest?" "Wazon." "Mamy już trzy!" "Ale nie mamy niebieskiego!").
+Tego dnia Jihoon zjadł mnie potajemnie, gdy Gosia wyszła.
 
-Ale jakoś to działa. Nasze mieszkanie może nie wygra żadnego konkursu na design wnętrz, ale jest nasze. Odzwierciedla nas – nasze kultury, nasze osobowości, nasze kompromisy.
+Następnego dnia Gosia próbowała mnie spróbować. Wzięła malutką łyżeczkę, jak gdybym był trucizną. Skrzywiła się i pobiegła do zlewu.
 
-Ostatnio odwiedziła nas para znajomych – ona Polka, on Niemiec. Rozglądali się po mieszkaniu z fascynacją.
+"Jihoon, to jest za ostre! Jak możesz to jeść?"
 
-– Jak wy to zrobiliście? – zapytała ona. – My ciągle kłócimy się o urządzenie!
+Jihoon wyglądał na zawstydzonego. Ja czułem się jak nieproszony gość na przyjęciu.
 
-Spojrzeliśmy na siebie z Minho i uśmiechnęliśmy się.
+Tydzień później Gosia przyniosła polską kiszoną kapustę.
 
-– To proste – powiedział. – Musicie stoczyć wojnę, wynegocjować pokój, a potem nauczyć się żyć w hybrydalnej rzeczywistości.
+"Zobacz" - powiedziała triumfalnie - "mamy też kapustę kwaszoną! I wcale nie jest ostra."
 
-– I zaakceptować, że krajalnica do jajek to głupi wynalazek – dodałam.
+Jihoon spróbował polskiej kapusty. Przełknął. Uśmiechnął się uprzejmie. "Jest dobra" - skłamał.
 
-– Ale gofrownica jest okej – przyznał Minho. – Zwłaszcza jak robi się gofry w niedzielne poranki.
+Ale ja widziałem. Widziałem, jak jego twarz szukała smaku dzieciństwa w tej polskiej kwaśnej mgiełce. Jak jego organizm wołał o właściwe mikroorganizmy, te od babci, te z ciepłego klimatu i długich tradycji fermentacji.
 
-– Nauczyłeś się robić gofry?!
+Od tamtego dnia mieszkamy razem w lodówce - ja i polska kapusta. Ona wygląda na zadowoloną ze swojej nowej pozycji. Ja czekam cierpliwie aż Jihoon zrozumie, że można kochać dwie kapusty jednocześnie.
 
-– W tej kuchni pełnej sprzętów trudno się oprzeć eksperymentom – uśmiechnął się.
+Chociaż muszę przyznać - gdy Gosia postanowiła zrobić kimchi na swój sposób (z polską kapustą, bez chili, z koperkiem), poczułem pierwsze w życiu symptomy depresji.
 
-I może to jest sekret udanego międzykulturowego mieszkania – nie próbować narzucić swojej wizji, ale znaleźć przestrzeń dla obu światów. Nawet jeśli oznacza to, że w salonie stoi sofa obok maty do jogi, a w kuchni minimalistyczne miski sąsiadują z babciną zastawą.
+### czwarty obraz: ścianka prysznicowa
 
-Dom to nie tylko przestrzeń. To kompromis, negocjacje, czasem wojna, ale przede wszystkim – wspólne życie. I choć Minho wciąż twierdzi, że mamy za dużo rzeczy, a ja uważam, że moglibyśmy mieć więcej półek, jakoś ta nasza polsko-koreańska hybryda stała się prawdziwym domem.
+*z perspektywy przezroczystego szkła z funkcją przeciw-zachlapywania*
 
-Ps. Krajalnicę do jajek ostatecznie sprzedałam. Ale kupiłam za to piękny dzbanek do herbaty. Minho udaje, że tego nie widział. To też jest miłość.
+Jestem ścianką prysznicową. Moja praca polega na oddzieleniu wody od reszty łazienki. Wydawałoby się proste.
+
+Gdy Jihoon zamieszkał w tym mieszkaniu, myślałem, że będę miał spokojną pracę. Jeden człowiek, jeden prysznic dziennie, może czasem dwa. Standardowe zachlapania, normalne strumienie wody, przewidywalny zakres działania.
+
+Pierwsze zaskoczenie przyszło szybko.
+
+Jihoon zaczął każdy prysznic od umycia podłogi łazienki. Całej podłogi. Poza moją strefą. Kierował strumień wody ze słuchawki na podłogę przy sedesie, przy umywalce, w każdy kąt łazienki.
+
+Myślałem, że to pomyłka. Że celuje we mnie, ale chybia. Więc zwiększyłem swoją objętość, rozszerzyłem granice, przygotowałem się na przechwytywanie wszystkich strzałów wodnych.
+
+On wciąż celował obok.
+
+Potem zrozumiałem. W Korei łazienki to takie duże prysznice. Wszystko się myje jednocześnie - i człowiek, i pomieszczenie. Podłoga ma odpływ, wszystko jest wodoodporne, nie ma podziału na strefy mokre i suche.
+
+Czyli ja, ścianka prysznicowa, jestem w tym mieszkaniu praktycznie bezużyteczna.
+
+Jihoon traktuje mnie jak sugestię, nie jak barierę. Myje się za mną, ale jednocześnie myje całą łazienkę. Woda kapie i tryska wszędzie, tylko nie tam, gdzie przygotowałem swoje zabezpieczenia.
+
+Gdy wprowadził się z Gosią, sytuacja stała się jeszcze bardziej skomplikowana.
+
+Gosia używa mnie zgodnie z przeznaczeniem - woda zostaje za mną, łazienka za mną zostaje sucha. Jihoon używa mnie jako elementu dekoracyjnego - i tak myje całość, więc moja obecność to bardziej grzeczność niż konieczność.
+
+Teraz, po pół roku, wypracowaliśmy kompromis. Jihoon myje się w weekend "po koreańsku" - zalewa całą łazienkę, sprzątamy wszyscy razem - ja, podłoga, umywalka, sedes. W tygodniu myje się "po polsku" - stara się trzymać wodę za mną, choć czasem zapomina i zalewa połowę mieszkania.
+
+Gosia początkowo denerwowała się na mokrą podłogę. Potem kupiła korki gumowe i stwierdziła, że "koreańskie mycie łazienki" to w sumie niezła metoda generalnego sprzątania.
+
+Ostatnio słyszę, że planują remont. Podobno chcą zrobić "prawdziwą koreańską łazienkę" z odpływem w podłodze i bezbarierowym prysznicem.
+
+Nie wiem, czy będę potrzebny w nowej konfiguracji. Może zostanę przeniesiony do roli ścianki balkonowej albo przegrody między pomieszczeniami.
+
+Ale szczerze mówiąc, cieszę się, że będę mógł wreszcie przejść na emeryturę. Sześć miesięcy oddalowywania się od granic własnej funkcjonalności to wyczerpujące doświadczenie.
+
+### piąty obraz: kalendarz na ścianie
+
+*z perspektywy kalendarza 2024 z krajobrazami Korei*
+
+Wiszę na ścianie w korytarzu i dokumentuję historię tego mieszkania dzień po dniu. Jestem świadkiem wszystkich terminów, planów, konfliktów czasowych i negocjacji międzykulturowych.
+
+Na początku roku Jihoon oznaczał na mnie koreańskie święta czerwonym mazakiem. Chuseok, Nowy Rok Księżycowy, Dzień Dziecka, Buddha's Birthday. Małe czerwone kółka z koreańskimi podpisami.
+
+W marcu pojawiły się niebieskie znaczki od Gosi. Polskie święta, urodziny rodziny, ważne terminy w pracy. Polskie nazwiska napisane dużymi literami, żeby Jihoon widział.
+
+W maju otrzymaliśmy trzeci kolor - zielony. "Nasze święta" - wyjaśniła Gosia. Rocznica pierwszego spotkania, rocznica pierwszego pocałunku, rocznica przeprowadzki Jihoona. Dzień kiedy pierwszy raz gotowali razem. Dzień kiedy pierwszy raz poszli do kina na polski film z napisami.
+
+Zielonych znaczków coraz więcej. To najciekawsza część mojej pracy - obserwowanie jak para tworzy własne tradycje, własne dni świętowania, własną mitologię miłosną.
+
+Ale są też dramaty.
+
+Czerwony znaczek na październik: "Rodzice przyjeżdżają z Korei." Niebieskie znaczki na grudzień: "Wigilia u rodziców Gosi." I wielki, czarny znak zapytania pomiędzy nimi: "Co robimy?"
+
+Przez tydzień Jihoon przychodził i się na mnie gapił. Gosia też. Czasem razem, częściej osobno. Podsłuchiwałem ich rozmowy.
+
+Jihoon: "Moi rodzice przyjeżdżają pierwszy raz do Polski. To bardzo ważne."
+Gosia: "Wigilia to najważniejsze polskie święto. Nie można jej przegapić."
+Jihoon: "Może moglibyśmy skrócić..."
+Gosia: "Skrócić Wigilię? To jak skrócić pierwszy sen dziecka."
+
+Rozwiązanie przyszło pod koniec listopada. Jihoon dostał nagle genialny pomysł kulturowy. Poprosił rodziców, żeby przylecieli wcześniej. Urządził dla nich "Polską Wigilię z Koreańskimi Dodatkami". Gosia nauczyła się robić koreańskie pierogi. Jihoon nauczył się polskich kolęd.
+
+Na moim grudniowym okienku pojawiła się cała paleta kolorów. Czerwony (przyjazd rodziców), niebieski (Wigilia tradycyjna), zielony (nasze wymyślone święto). I jeden złoty znaczek na 26 grudnia: "Podsumowanie kulturowego eksperymentu."
+
+Słyszałem później, jak Jihoon rozmawiał z rodzicami przez telefon. Wyjaśniał im, że w Polsce też są wspólne posiłki rodzinne przy specjalnych okazjach. Że zdejmowanie butów w domu to również polska tradycja, choć nie tak ścisła. Że polskie babcie tak samo karmią na siłę jak koreańskie babcie, tylko innymi daniami.
+
+Rodzice Gosi z początku trochę się stresowali koreańskimi gośćmi. Później okazało się, że wszyscy mają bardzo podobne zdanie o tym, że dzieci za mało jedzą, za dużo pracują i w ogóle za późno się żenią.
+
+Teraz jest styczeń 2025. Jihoon poprosił mnie o miejsce na ścianie dla nowego kalendarza - koreańsko-polskiego, z obiema datami świąt, z miejscem na trzy rodzaje znaczków: jego, jej i nasze.
+
+Zazdroszczę mojemu następcy. Będzie świadkiem tego, jak ta międzykulturowa przygoda rozegra się dalej.
+
+Ja zaś zmierzam do śmietnika lub do schowka. Ale zabiorę ze sobą dobre wspomnienie tej pary, która nauczyła się świętować w trzech kolorach jednocześnie.
+
+### szósty obraz: mata do jogi
+
+*z perspektywy purpurowej maty z Natural Rubber*
+
+Jestem matą do jogi. Pochodzę z ekologicznej produkcji, mam certyfikat yogaalliance i jestem dumna ze swojej funkcji. Lub byłam, zanim trafiłam do tego mieszkania.
+
+Jihoon kupił mnie w pierwszym tygodniu po przeprowadzce. Byłam jego pierwszym "meblem". Rozłożył mnie pośrodku pustego salonu i powiedział: "Perfect. To wszystko czego potrzebuję."
+
+Przez pierwszy miesiąc było idealnie. Codziennie rano Jihoon rozwijał mnie w promieniach słońca wpadających przez okno. Robiliśmy pozdrowienie słońca, pozycję wojownika, rozciąganie kręgosłupa. Ja podejmowałam jego ciało z miękką precyzją, on szanował moje granice i funkcję.
+
+Wieczorami służyłam jako miejsce do medytacji. Jihoon siadał w pozycji lotosu i oddychał głęboko. Czasem zapalał kadzidełko. Czułam się potrzebna, spełniona, istotna.
+
+Potem przyprowadziła Gosię.
+
+"To jest mata do jogi" - wyjaśnił, wskazując na mnie dumnie.
+
+"Aha" - powiedziała Gosia, patrząc na mnie jak na osobę, która przyszła na przyjęcie w niewłaściwym dniu. "A gdzie będziemy siedzieć?"
+
+"Na macie."
+
+"A gdzie będziemy jeść?"
+
+"Na macie."
+
+"A gdzie będziemy oglądać filmy?"
+
+"Na macie."
+
+Gosia spojrzała na Jihoona z wyrazem współczucia zarezerwowanym dla osób z bardzo ograniczonymi możliwościami intelektualnymi.
+
+"Jihoon, to jest mata do jogi. Nie da się na niej żyć."
+
+"Claro que sí! W Korei moja babcia..."
+
+"Twoja babcia nie mieszkała w Warszawie i nie miała koleżanek, które będą nas odwiedzać."
+
+I tak zaczął się mój upadek.
+
+Pierwszą rzeczą, którą Gosia postawiła na mnie, był stolik kawowy. Niby mały, niby "tymczasowy", ale moja powierzchnia nagle została ograniczona do powierzchni pod spodem.
+
+Potem przyszła sofa. Niewielka, dwuosobowa, ale zajmująca mój centralny punkt. Została ustawiona TAK na mnie, że joga była niemożliwa.
+
+"Nie mogę ćwiczyć" - skarżył się Jihoon.
+
+"Przecież masz miejsce obok sofy!"
+
+"To nie jest miejsce do jogi. To jest... szara strefa."
+
+Dzisiaj jestem matą do jogi, która służy jako:
+- Podkładka pod sofę (żeby nie porysować podłogi)
+- Mata przed drzwiami (bo jest antypoślizgowa)
+- Podkładka do jedzenia na podłodze (gdy mają gości i nie wszyscy mieszczą się przy stole)
+- Miejsce do składania prania (bo jest miękka)
+- Ochrona podłogi podczas malowania ścian
+
+Raz w tygodniu, w niedzielny poranek, Jihoon wciąż próbuje odzyskać mnie dla pierwotnej funkcji. Przesuwa sofę, zwijają stolik, rozciąga się na moich dawnych obszarach dominacji.
+
+Ale to już nie to samo. Zamiast otwartej przestrzeni i światła słonecznego mam wokół siebie meble. Zamiast ciszy słyszę telewizor z sąsiedniego pokoju. Zamiast medytacyjnego spokoju czuję pośpiech człowieka, który wie, że za godzinę musi wszystko wrócić na miejsce.
+
+Czasem myślę o swoich koleżankach z sali jogi. Rozłożone rano, zwinięte wieczorem, używane zgodnie z przeznaczeniem. Czy to nie jest lepsze życie?
+
+Ale potem widzę, jak Jihoon i Gosia siedzą razem na sofie, która stoi na mnie. Jak się śmieją, jak jedzą kolację z talerzami na kolanach, jak zasypiają przytuleni podczas wieczornego filmu.
+
+I myślę, że może moja funkcja się ewoluowała. Może nie jestem już matą do jogi, ale fundamentem ich związku. Dosłownie.
+
+To nie jest to, co planowałam dla swojego życia. Ale może czasem trzeba zmienić oczekiwania i nauczyć się nowej roli.
+
+Chociaż dalej marzę o porządnym sezonie pozdrowienia słońca.
+
+---
+
+## wersja 5: parodia powieści szpiegowskiej
+
+### rozdział 1: operacja kimchi
+
+Nazywam się Kim. Jihoon Kim. Licencja na kulturalne nieporozumienia: załatwiona. Misja: infiltracja polskiego mieszkania przy ul. Żurawiej i przejęcie kontroli nad przestrzenią życiową. Pokojowo, jeśli to możliwe. Z użyciem siły - jeśli będzie konieczne.
+
+Mój contact handler przesłał mi szczegółowe instrukcje przez szyfrowany komunikator WhatsApp: "Nie denerwuj Gosi. Ona ma klucze i zna właściciela. Bez niej misja = failure. Pamiętaj: buty zawsze OFF na threshold. Good luck, agent."
+
+W plecaku mam wyposażenie niezbędne do operacji:
+- Garnek do ryżu (model zaawansowany, technologia stealth-cooking)
+- Kimchi w przebraniu "kiszonej kapusty koreańskiej" 
+- Zestaw 47 par butów (niektóre to atrapki, inne to prawdziwe narzędzia infiltracji)
+- Odtwarzacz K-pop (weapon of mass distraction)
+- Telefon do codziennego kontaktu z bazą macierzystą (czyli mamą w Seulu)
+
+Pierwszy dzień operacji przeszedł bez komplikacji. Target Gosia wydaje się nieświadoma mojej prawdziwej tożsamości. Myśli, że jestem tylko zwykłym koreańskim programistą szukającym wspólnego mieszkania. Perfect cover.
+
+Problem pojawił się drugiego dnia.
+
+Gosia zauważyła mój sprzęt.
+
+"Po co ci tyle butów?" - zapytała, badając mój ekwipunek podejrzliwym wzrokiem.
+
+Wzbudziłem podejrzenia. Musiałem błyskawicznie wymyślić wiarygodne cover story.
+
+"W Korei... uh... mamy różne buty na różne okazje" - zaimprowizowałem. "To kulturowa konieczność."
+
+Nie kupiła tego. Widziałem w jej oczach nieufność. Ale jeszcze nie aktywowała defensive measures, więc operacja mogła być kontynuowana.
+
+### rozdział 2: wróg ujawnia się
+
+Agent Halinka z naprzeciwka była pierwszą osobą, która zdemaskowała moją mission. Emerytowana agentka wywiadu PRL (według mojej analizy) z dog-informantem o kryptonimie "Azor". Znała wszystkie standardowe manewry kulturowej infiltracji.
+
+"Ten młody nie jest turystą" - słyszałem przez ścianę, jak meldowała przez telefon swojej jednostce (synowi). "Za bardzo się stara. Za dużo się kłania. I te buty przy drzwiach to classic Korean intelligence technique."
+
+Musiałem uruchomić Plan B: zdobycie agent Halinki na współpracującego informatora.
+
+Wysłałem rekonesans w postaci grzecznego ukłonu i próby conversation po angielsku. Agent Halinka response była nieprzewidywalna: zamiast activated alarm, zaprosiła mnie na herbatę.
+
+Podczas tea meeting przeprowadziła skuteczne interrogation zamaskowane jako pogawędkę sąsiedzką.
+
+"Dziewczyna masz?" - direct question, bez ogródek.
+
+"No girlfriend" - odpowiedziałem zgodnie z prawdą.
+
+"Hmm. Praca?"
+
+"Programming. Computers."
+
+"Hmm. Rodzina?"
+
+"In Korea. Miss them."
+
+Agent Halinka przeanalizowała moje responses w real time. Po trzech minutach wydała verdict: "Porządny chłopak. Tylko samotny. Marcin! Niech ta twoja Kasia przyprowadzi koleżankę!"
+
+Mission objective changed: zamiast infiltracji mieszkania, zostałem wciągnięty w operację matrymonialną pod kryptonimem "Find-Korean-Boy-Polish-Girl".
+
+### rozdział 3: double agent się ujawnia
+
+Gosia okazała się być podwójną agentką.
+
+Przez pierwsze tygodnie myślałem, że jestem master manipulator, stopniowo przejmując kontrolę nad shared space. Zostawiałem buty pod drzwiami - she adapted. Instalowałem garnek do ryżu - she accepted. Wprowadziłem kimchi do lodówki - she tried to eat it.
+
+Czułem się jak kulturowy ninja.
+
+Aż do dnia, gdy przyszedłem do domu i zastałem ją siedzącą na podłodze, jedząc pałeczkami z garnka do ryżu.
+
+"Gosia, co robisz?" - zapytałem, confused.
+
+"Uczę się twojej kultury, żebyś się czuł jak w domu" - odpowiedziała innocent smile.
+
+Ale w jej oczach zobaczyłem prawdę. Ona również prowadziła operację infiltracji. Pod codenameֹֹֻֻֻֻ "Being-Nice-Polish-Girlfriend" wprowadzała siebie w mój life system. My secret plan to przejęcie control nad mieszkaniem został counter-infiltrowany przez her secret plan to przejęcie control nad mną.
+
+Byliśmy oboje secret agents. Każde działanie z pozoru niewinne było częścią większego strategic plan.
+
+Ona: zostawiała polish books w miejscach, które będę musiał je zauważyć. 
+Ja: przypadkowo zalewałem wodą łazienkę, żeby wprowadzić korean bathroom customs.
+Ona: "Przypadkowo" zabierała mnie w miejsca, gdzie muszę przystosować social customs od korean na polish.
+Ja: "Przypadkowo" gotowałem korean food tak delicious, że ona chciała już tylko korean kitchen life-style.
+
+### rozdział 4: third party intervention
+
+Agent Halinka działała jako mediator między dwoma konkurencyjnymi intelligence services.
+
+"Słuchajcie, młodzi" - powiedziała during kolejnej tea session. "Widzę co się dzieje. Każdy próbuje przejąć terytorium drugiej osoby. To jest nieproduktywny cold war."
+
+Ja i Gosia exchanged looks. Nasza cover została blown przez senior agent z wieloletnim experience.
+
+"Propozuję peace treaty" - kontynuowała Halinka. "Podział terytorny. Każdy dostaje own zones of influence i shared areas z joint administration."
+
+"Co masz na myśli?" - zapytała Gosia, suddenly interested.
+
+"Jihoon dostaje bathroom według korean customs w weekend. Gosia dostaje kitchen według polish way w tygodnie. Living room pozostaje neutral territory. Kompromis."
+
+W terminologii szpiegowskiej to nazywa się détente. Okres relaxed tensions między hostile forces.
+
+Zgodziłem się na trial period.
+
+### rozdział 5: sleeping with the enemy
+
+Problem z peace treaties polega na tym, że im dłużej mieszkasz z supposed enemy, tym bardziej zdajesz sobie sprawę, że ona wcale nie jest enemy.
+
+Po trzech miesiącach détente zacząłem zauważać, że Gosia:
+- Naczyń kimchi w lodówce nie wyrzuca tylko because I like it
+- Nosi kapcie w mieszkaniu nie because her feet are cold ale because szanuje korean custom
+- Przestała complain on wet bathroom floor nie because się poddała ale because zauważyła, że faktycznie potem jest bardziej clean
+
+I ja zauważyłem, że ja:
+- Noszę buty na klatce schodowej nie tylko because polish people expect it, ale because actually to make sense w tym building
+- Uczę się polskich phrases nie tylko for cover story ale because chcę better communicate z nią
+- Składam pościel każdego rana not only for korean discipline ale because ona appreciates order in shared space
+
+To była classic evolucja in intelligence operations: extended deep cover leads to genuine affection for target country.
+
+### rozdział 6: kontratak nieprzyjaznej agencji
+
+Prawdziwy enemy ujawnił się w grudniu: Gosia's rodzice.
+
+Przylecieli bez warning dla surprise inspection mojej infrastruktury. Classic destabilization tactic.
+
+"Kim to jest ten Azjata?" - słyszałem through the wall father debriefing Gosię.
+
+"Jihoon. Mój współlokator."
+
+"Współlokator?" - suspicious tone. "Czy on ma romantic intentions?"
+
+Byłem w trouble. Parental units to najniebezpieczniejsza forma counter-intelligence. Znają all tricks, rozumieją every manipulation, immune na charming attempts.
+
+Musiałem activate emergency protocol: Total Honesty Combined With Cultural Respect.
+
+Następnego dnia zrobiłem traditional korean introduction z deep bows i formal speech po broken polish.
+
+"Dzień dobry. Jestem Jihoon. Przepraszam za my poor polish. Bardzo szanuję your daughter. Ona jest excellent współlokator. Uczę się od jej polskiej kultury."
+
+Gosia's matka spojrzała na ojca. Ojciec spojrzał na mnie. Long silence.
+
+Potem powiedziała: "A ty umiesz gotować?"
+
+"Yes, madam. Korean cooking i trochę polish cooking."
+
+"Pokaż."
+
+### rozdział 7: final mission
+
+Ten wieczór zrobiłem dinner dla wszystkich. Korean-polish fusion. Kimchi pierogi. Bulgogi z ziemniakami. Tradycyjną korean herbatę z polish ciastka.
+
+Podczas meal rodzice przeprowadzili final interrogation.
+
+Ojciec: "Jakie masz intentions wobec mojej córki?"
+Ja: "Uczę się być dobrym przyjacielem."
+Matka: "A w przyszłości?"
+Ja: "Jeśli ona będzie happy i ja będę happy... maybe można rozmawiać o serious relationship."
+Ojciec: "A te wszystkie buty?"
+Ja: "W Korei shoes zawsze off w domu. To jest respect dla house."
+Matka: "A ten garnek?"
+Ja: "Rice to jest basic food dla Korean people. Jak bread dla Polish people."
+
+Po dwóch godzinach intensive interrogation dostałem approval.
+
+"Porządny chłopak" - orzekła matka. "Gosia, jak będziesz happy with him, my nie mamy nothing against."
+
+Mission accomplished. Ale nie taka mission, jakiej się spodziewałem.
+
+### epilog: retirement from service
+
+Sześć miesięcy później zrezygnowałem z undercover operation. Już nie próbowałem infiltrować Gosia's life albo control shared space. Już nie analizowałem every move jako tactical advantage.
+
+W zamian stałem się... normalna persona in relationship.
+
+Agent Halinka czasami pyta czy miss the excitement of cultural warfare.
+
+Ale prawda jest taka, że najlepsze spy stories to te, które finish with agent deciding że target country jest worth staying permanently.
+
+I czy polska immigration office will approve permanent residence permit for retired Korean spy who found love za enemy lines.
+
+*CLASSIFIED: Do not share this report z Korean mom. She still thinks jestem w Polsce tylko temporary business assignment.*
+
+**KOD WYWIADU: OPERATION COMPLETE**
+**STATUS: AGENT PRZESZEDŁ ROMANCE-BASED DEFECTION**
+**CLASSIFICATION: HAPPY ENDING**
+
+---
+
+*Historia ta powstała na podstawie autentycznych doświadczeń, zebranych przez autorkę w trakcie licznych misji obserwacyjnych w warszawskich mieszkaniach.* 
+
+*Wszelkie podobieństwo do rzeczywistych osób i zdarzeń jest całkowicie celowe.*
