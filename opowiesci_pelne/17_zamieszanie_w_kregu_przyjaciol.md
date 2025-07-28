@@ -33,9 +33,9 @@ Wszystko zaczęło się niewinnie. Siedziałam w swojej ulubionej kawiarni na Mo
 
 Postanowiłam to zmienić. Zorganizować jedno wielkie wyjście, gdzie wszyscy się poznają, polubią i stworzą piękną, międzykulturową przyjaźń. Co mogło pójść nie tak?
 
-Pierwszym sygnałem ostrzegawczym powinna być reakcja mojej najlepszej koreańskiej przyjaciółki, Miny, kiedy przedstawiłam jej mój plan.
+Pierwszym sygnałem ostrzegawczym powinna być reakcja mojej najlepszej koreańskiej przyjaciółki, Eun-ji, kiedy przedstawiłam jej mój plan.
 
-- Jadzia-ya, ty chcesz zaprosić WSZYSTKICH? - zapytała, marszcząc brwi nad kubkiem latte z dodatkiem słodkiego ziemniaka (najnowszy seulski trend, który dotarł do warszawskiej dzielnicy koreańskiej).
+- Jadzia-ya, ty chcesz zaprosić WSZYSTKICH? - zapytała Eun-ji, marszcząc brwi nad kubkiem latte z dodatkiem słodkiego ziemniaka (najnowszy seulski trend, który dotarł do warszawskiej dzielnicy koreańskiej jak epidemia kawowa).
 
 - No tak, czemu nie? - odpowiedziałam entuzjastycznie. - Będzie was pięć z koreańskiej strony, pięć moich polskich przyjaciółek...
 
@@ -43,21 +43,21 @@ Pierwszym sygnałem ostrzegawczym powinna być reakcja mojej najlepszej koreańs
 
 - Co masz na myśli?
 
-Mina westchnęła i zaczęła wyliczać na palcach:
+Eun-ji westchnęła głęboko i zaczęła metodycznie wyliczać na palcach:
 
 - Że najpierw idziemy na kawę, potem na pierwszy obiad, potem na zakupy, potem na drugi obiad, potem na deser, potem może jeszcze na karaoke, i że wszystko razem, nikt nie może wyjść wcześniej, bo to niegrzeczne?
 
 - Och - mruknęłam. - No to może powiem im, że to będzie... elastyczne wyjście?
 
-Mina spojrzała na mnie z politowaniem.
+Eun-ji spojrzała na mnie z tym charakterystycznym koreańskim wyrazem politowania, zarezerwowanym dla przyjaciół z absurdalnymi pomysłami.
 
-- Jadzia-ya, mieszkasz tu już trzy lata. Kiedy ostatnio widziałaś "elastyczne" koreańskie wyjście?
+- Jadzia-ya, mieszkasz tu już trzy lata. Kiedy ostatnio widziałaś "elastyczne" koreańskie wyjście? To jak szukanie jednorożca w centrum Myeongdong.
 
 Miała rację. Koreańskie wyjścia grupowe to maraton, nie sprint. Ale byłam zdeterminowana. Wysłałam zaproszenia do obu grup, dyplomatycznie opisując plan jako "wspólne spędzenie soboty - kawa, może jakiś posiłek, zobaczymy jak pójdzie".
 
 Reakcje były... zróżnicowane.
 
-Grupa koreańska natychmiast utworzyła czat na KakaoTalk, gdzie w ciągu godziny pojawiło się 247 wiadomości. Planowały już, co założyć (Mina: "Może matching outfits?"), gdzie dokładnie pójdziemy (Jisoo: "Znam nową kawiarnię, która ma prywatny pokój dla grup!"), co będziemy jeść (Hyejin: "Może najpierw koreańskie, potem polskie?"), i jak podzielimy rachunek (Sooyoung: "Ja zapłacę za kawę dla wszystkich, ty za obiad, Mina za deser...").
+Grupa koreańska natychmiast utworzyła czat na KakaoTalk, gdzie w ciągu godziny pojawiło się dokładnie 247 wiadomości (liczyłam z przerażeniem). Planowały już wszystko: co założyć (Eun-ji: "Może matching outfits?"), gdzie dokładnie pójdziemy (So-young: "Znam nową kawiarnię z prywatnym pokojem!"), co będziemy jeść (Hye-jin: "Może najpierw koreańskie, potem polskie?"), i jak podzielimy rachunek (Min-ju: "Ja zapłacę za kawę dla wszystkich, ty za obiad, Eun-ji za deser...").
 
 Tymczasem moje polskie przyjaciółki odpowiadały pojedynczymi SMS-ami:
 
@@ -83,7 +83,7 @@ Jakże naiwna byłam.
 
 Pierwsze przybyły Koreanki. Wszystkie pięć. Razem. O 13:17 (koreańska punktualność w wydaniu warszawskim - tylko 17 minut spóźnienia to praktycznie wcześniej). Weszły do kawiarni jak dobrze zorganizowana jednostka wojskowa, wszystkie ubrane w podobnym stylu (oversize'owe swetry, spódniczki mini, białe sneakersy), wszystkie z identycznymi tote bag'ami z napisem po koreańsku.
 
-- Jadzia-ya! - zawołała Mina, machając entuzjastycznie. - Przynieślyśmy prezenty dla twoich polskich przyjaciółek!
+- Jadzia-ya! - zawołała Eun-ji, machając entuzjastycznie jak idol na koncercie. - Przynieślyśmy prezenty dla twoich polskich przyjaciółek!
 
 Wyciągnęły z torebek małe, pięknie zapakowane paczuszki. Koreańskie maseczki w płachcie, próbki kosmetyków, słodycze z Korei.
 

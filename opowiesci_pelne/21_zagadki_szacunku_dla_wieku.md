@@ -7,29 +7,29 @@
 ## wersja 1: terapeuta par międzykulturowych
 *dr anna kowalska-kim prowadzi praktykę terapeutyczną w warszawie. po 15 latach pracy z parami międzykulturowymi, te historie wciąż ją zaskakują*
 
-**sesja 247: małgorzata (32) i min-jun (35)**
+**sesja 247: beata (32) i hyun-woo (35)**
 
-siedzą naprzeciwko siebie jak dwaj wojownicy przed walką. małgorzata oplata ramiona wokół siebie, min-jun patrzy w okno. nie pierwszy raz widzę to u par polsko-koreańskich. różnice kulturowe w szacunku dla wieku potrafią rozerwać związek na strzępy.
+siedzą naprzeciwko siebie jak dwaj wojownicy przed walką. beata oplata ramiona wokół siebie, hyun-woo patrzy w okno. nie pierwszy raz widzę to u par polsko-koreańskich. różnice kulturowe w szacunku dla wieku potrafią rozerwać związek na strzępy.
 
-"opowiedz mi o ostatnim konflikcie" - zaczynam łagodnie.
+"opowiedzcie mi o ostatnich konfliktach" - zaczynam łagodnie.
 
-małgorzata wybucha pierwsza: "on chce, żebym traktowała jego matkę jak bogini! nie mogę się odezwać przy kolacji, muszę siedzieć prosto jak kij, czekać aż ona zacznie jeść. a jak jego ojciec nie może otworzyć słoika, to mam udawać, że nie widzę? to chore!"
+beata wybucha pierwsza: "on chce, żebym traktowała jego matkę jak cesarzową! nie mogę się odezwać przy kolacji, muszę siedzieć prosto jak kij, czekać aż ona zacznie jeść. a jak jego ojciec nie może otworzyć słoika, to mam udawać, że nie widzę? to jakiś absurd!"
 
-min-jun zaciska szczęki: "ty nie rozumiesz. w korei szacunek dla starszych to podstawa. nie możesz po prostu wejść i zmieniać tradycji, która ma tysiące lat."
+hyun-woo zaciska szczęki: "ty nie rozumiesz. w korei szacunek dla starszych to podstawa społeczeństwa. nie możesz po prostu wejść i zmieniać tradycji, która ma tysiące lat."
 
-obserwuję ich od pięciu miesięcy. małgorzata przyszła tu zrozpaczona - czuła się jak outsider we własnej rodzinie. min-jun był sfrustrowany - żona nie szanowała jego kultury. typowy schemat.
+obserwuję ich od pięciu miesięcy. beata przyszła tu zrozpaczona - czuła się jak obca we własnej rodzinie. hyun-woo był sfrustrowany - żona nie szanowała jego kultury. typowy schemat.
 
-"małgorzato, jak wyglądał szacunek dla starszych w twojej rodzinie?"
+"beato, jak wyglądał szacunek dla starszych w twojej rodzinie?"
 
-"normalnie!" - gestykuluje gwałtownie. "babcia to głowa rodziny, ale można się z nią śmiać, żartować. jak coś potrzebuje, pomagamy od razu. nie czekamy aż się męczy z ciężką torbą, bo to 'nieszanowanie jej siły'. to bez sensu!"
+"normalnie!" - gestykuluje gwałtownie. "babcia to głowa rodziny, ale można się z nią śmiać, żartować. jak coś potrzebuje, pomagamy od razu. nie czekamy aż się męczy z ciężką torbą, bo to 'lekceważenie jej siły'. to bez sensu!"
 
-"min-jun, a jak to wyglądało u ciebie?"
+"hyun-woo, a jak to wyglądało u ciebie?"
 
-długo milczy. ten mężczyzna, dyrektor w korporacji, przy matce zamienia się w 12-letniego chłopca.
+długo milczy. ten mężczyzna, dyrektor w korporacji, przy matce zamienia się w dwunastoletniego chłopca.
 
-"moja matka... wychowała czterech synów sama. ojciec zmarł wcześnie. zasługuje na szacunek. gdy wraca z pracy, nikt nie siadał do obiadu, dopóki ona nie usiadła. nikt nie mówił głośno w jej obecności. to było naturalne."
+"moja matka... wychowała czterech synów sama. ojciec zmarł wcześnie. zasługuje na szacunek. gdy wracała z pracy, nikt nie siadał do obiadu, dopóki ona nie usiadła. nikt nie mówił głośno w jej obecności. to było naturalne."
 
-"ale min-jun" - małgorzata nachyla się do przodu - "twoja matka ma 58 lat! jest młodsza od mojej mamy! dlaczego mam się jej kłaniać jak cesarzowej, a moja mama ma być traktowana jak kolega?"
+"ale hyun-woo" - beata nachyla się do przodu - "twoja matka ma 58 lat! jest młodsza od mojej mamy! dlaczego mam się jej kłaniać jak cesarzowej, a moja mama ma być traktowana jak koleżanka?"
 
 tu jest sedno problemu. w polsce szacunek dla wieku jest płynny, emocjonalny. w korei - sztywny, hierarchiczny. obie strony mają rację w swoim kontekście kulturowym.
 
@@ -57,7 +57,7 @@ pauza. nie, dla niego nie jest oczywiste. w korei dotyk starszej osoby bez pozwo
 
 **sesja 251: przełom**
 
-małgorzata wchodzi z opuchnięymi oczami. min-jun trzyma ją za rękę. pierwszy raz widzę ich w kontakcie fizycznym.
+beata wchodzi z opuchniętymi oczami. hyun-woo trzyma ją za rękę. pierwszy raz widzę ich w kontakcie fizycznym.
 
 "co się stało?"
 
