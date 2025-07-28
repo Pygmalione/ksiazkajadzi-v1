@@ -2,9 +2,21 @@
 
 ## Wersja 1: "Między kimchi a schabowym"
 
-Nazywam się Jadzia Kim. Tak, wiem - brzmi jak wynik losowania w grze "wymyśl najbardziej niepasujące do siebie imię i nazwisko". Moja mama, dumna Polka z Podlasia, nalegała na Jadwigę po babci. Tata, równie dumny Koreańczyk z Seulu, zgodził się pod warunkiem, że będę mogła używać też jego nazwiska. I tak oto powstałam ja - chodzący dowód na to, że globalizacja ma twarz nastolatki z kryzysem tożsamości.
+## Narrator: Jadzia Kim
 
-Siedzę właśnie przy kuchennym stole, patrząc na dwa talerze przede mną. Po lewej - perfekcyjnie ułożone kimbap, które tata przygotował na moje urodziny. Po prawej - schabowy z kapustą, dzieło mamy, bo "przecież na urodziny musi być coś porządnego". Mam dwadzieścia pięć lat i wciąż nie wiem, które danie wybrać pierwsze, żeby nikogo nie urazić.
+W kawiarni Book by Book na Hongdae, między półkami z koreańską literaturą i polskimi tłumaczeniami, spotykam się z Kasią Dae-hyun. To młoda kobieta, która nosi nazwisko brzmiące jak wynik losowania w grze "wymyśl najbardziej niepasujące do siebie imię i nazwisko". Jej mama, dumna Polka z Podlasia, nalegała na Kasię po babci. Ojciec, równie dumny Koreańczyk z Seulu, zgodził się pod warunkiem, że córka będzie mogła używać też jego nazwiska.
+
+"Jestem chodzącym dowodem na to, że globalizacja ma czasem twarz dwudziestopięciolatki z kryzysem tożsamości" - mówi Kasia, mieszając matcha latte z levem ręką. "I przyszłam do ciebie, bo myślałam, że może zrozumiesz ten chaos."
+
+Przyglądam się jej - mix azjatyckich i europejskich rysów, który sprawia, że ludzie gapią się dyskretnie, próbując odgadnąć jej pochodzenie. Znam to spojrzenie. Sama go doświadczam.
+
+"Opowiedz mi o tym kryzysie" - zachęcam.
+
+Kasia wzdycha i wyciąga telefon, pokazując mi zdjęcie kuchennego stołu. Widzę dwa talerze - po lewej perfekcyjnie ułożone kimbap, po prawej tradycyjny polski schabowy z kapustą.
+
+"To były moje dwudzieste piąte urodziny w zeszłym miesiącu" - tłumaczy. "Appa przygotował kimbap, bo 'moja córka powinna znać swoje korzenie'. Mama zrobiła schabowego, bo 'przecież na urodziny musi być coś porządnego'. Siedziałam i przez dziesięć minut nie wiedziałam, które danie wybrać pierwsze, żeby nikogo nie urazić."
+
+Uśmiecham się ze zrozumieniem. "Ciągle czujesz, że musisz wybierać?"
 
 "Jadzia-ya!" - woła tata z salonu. Dodaje to koreańskie "-ya" do mojego polskiego imienia, jakby próbował je oswoić, nadać mu azjatycki charakter. "Chodź, pokażę ci zdjęcia z Korei!"
 

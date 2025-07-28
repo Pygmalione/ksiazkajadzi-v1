@@ -1,12 +1,24 @@
 # Przepaść pokoleniowa w technologii - Wersja 1: "Videocall apokalipsa"
 
-Kochani, Jadzia Kim z tej strony, i muszę wam opowiedzieć o najbardziej katastrofalnej rodzinnej wideokonferencji w historii ludzkości. To było jak zderzenie trzech galaktyk technologicznych - każda wirująca według własnych praw fizyki.
+## Narrator: Jadzia Kim
 
-Wszystko zaczęło się niewinnie. Moja mama z Polski napisała na rodzinnym czacie WhatsApp (który założyłam po trzech miesiącach tłumaczenia, czym jest "czat grupowy"):
+Siedzę w kawiarni na Itaewon, gdy podchodzi do mnie Kasia - Polka, która od roku próbuje nauczyć swoją koreańską rodzinę zastępczą podstaw technologii. Ma pod oczami takie cienie, jakby właśnie przeżyła wojnę cybernetyczną.
 
-"Kochani! W niedzielę robimy rodzinne spotkanie online! Babcia Halinka kończy 80 lat!"
+"Jadzia, ty masz doświadczenie z technologicznymi przepaściami międzypokoleniowymi" - zaczyna, siadając z westchnieniem. "Powiedz mi, że przeżyję to, co właśnie stało się z moją rodziną."
 
-Brzmiało prosto, prawda? O, gdybyście tylko wiedzieli...
+"Co się stało?" - pytam, już przygotowując się na opowieść o kulturowo-technologicznej katastrofie.
+
+"Próbowaliśmy zorganizować rodzinną wideokonferencję z okazji osiemdziesiątych urodzin babci Halinki" - Kasia zakrywa twarz dłońmi. "To miało być proste: połączenie trzech pokoleń i dwóch krajów przez Zoom. Skończyło się apokalipsą technologiczną."
+
+Uśmiecham się ze współczuciem. Znam to - zderzenie polskiej starszej generacji, która traktuje komputer jak maszynę do pisania podłączoną do internetu, z koreańskimi rodzicami, którzy chcą każdą rozmowę prowadzić w najwyższej jakości 4K z profesjonalnym oświetleniem.
+
+"Opowiedz mi wszystko" - proszę. "Od początku."
+
+Kasia bierze głęboki oddech. "Wszystko zaczęło się, gdy moja mama w Polsce napisała na rodzinnym czacie WhatsApp - który, nawiasem mówiąc, założyłam po trzech miesiącach tłumaczenia, czym jest 'czat grupowy': 'Kochani! W niedzielę robimy rodzinne spotkanie online! Babcia Halinka kończy 80 lat!'"
+
+"Brzmiało niewinnie" - przytakuję.
+
+"Właśnie! A powinnam się domyślić, że to będzie jak zderzenie trzech galaktyk technologicznych - każda wirująca według własnych praw fizyki."
 
 ## Akt I: Przygotowania czyli cyfrowy armagedon
 
