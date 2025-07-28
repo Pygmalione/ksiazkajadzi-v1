@@ -1,6 +1,6 @@
-# Story 1: Wet Toilet Surprise - Pełne Wersje
+# Historia 1: Mokra niespodzianka w łazience - pełne wersje
 
-## Wersja 1.1: Komedia totalna (Total Comedy)
+## Wersja 1.1: Komedia totalna
 ### 7500-9000 słów
 
 *Nazywam się Jadzia Kim, jestem Koreanko-Chinką mieszkającą w Polsce od sześciu lat. Uczę koreańskiego i chińskiego, prowadzę blog o życiu między kulturami. Historia, którą wam opowiem, usłyszałam od Miny podczas jednego z naszych spotkań w herbaciarni na Pradze. To opowieść o tym, jak woda może być katalizatorem zarówno katastrofy, jak i miłości.*
@@ -23,7 +23,7 @@ W tym momencie z sufitu spadła kropla wody. Potem druga. Potem strumień.
 
 ---
 
-## Wersja 1.2: Thriller paranoiczny (Paranoid Thriller)
+## Wersja 1.2: Thriller paranoiczny
 ### 3900-5400 słów
 
 *Nazywam się Jadzia Kim i mieszkam w Polsce od sześciu lat. Ta historia, którą wam opowiem, usłyszałam od znajomej, która pracuje w warszawskiej klinice psychiatrycznej. To, co zaczęło się jako zwykłe nieporozumienie kulturowe, przerodziło się w spiralę paranoi, która niemal zniszczyła jedno z najpiękniejszych polsko-koreańskich małżeństw, jakie znałam.*
@@ -34,7 +34,7 @@ Trzeci raz tego tygodnia Tomek znalazł łazienkę zalaną wodą. Ale tym razem 
 
 ---
 
-## Wersja 1.3: SMS-owa opera mydlana (SMS Opera)
+## Wersja 1.3: SMS-owa opera mydlana
 ### 3600-5100 słów
 
 *Jestem Jadzia Kim i od sześciu lat mieszkam w Polsce, gdzie uczę języków azjatyckich i obserwuję fascynujące kolizje kultur. Historia, którą zaraz przeczytacie, dotarła do mnie w sposób... nietypowy. Moja przyjaciółka, która pracuje w firmie telekomunikacyjnej (nie pytajcie której), przypadkowo natknęła się na te wiadomości podczas rutynowego przeglądu systemu. Oczywiście, wszystkie dane osobowe zostały zanonimizowane, ale sama historia była tak niesamowita, że musiałam ją z wami podzielić.*
@@ -43,13 +43,13 @@ Trzeci raz tego tygodnia Tomek znalazł łazienkę zalaną wodą. Ale tym razem 
 
 ---
 
-## Wersja 1.4: Kulinarny przewodnik po katastrofach (Culinary Guide)
+## Wersja 1.4: Kulinarny przewodnik po katastrofach
 ### 5400-7000 słów
 
-# Mokra Łazienka: Kulinarny Przewodnik po Międzykulturowych Katastrofach
+# Mokra łazienka: kulinarny przewodnik po międzykulturowych katastrofach
 *Książka kucharska dla par, które próbują połączyć nie tylko serca, ale i łazienki*
 
-## Przedmowa od Chef Jadzi Kim
+## Przedmowa od chef Jadzi Kim
 
 Drodzy Czytelnicy,
 
@@ -59,12 +59,12 @@ Nazywam się Jadzia Kim i od sześciu lat mieszkam w Polsce, gdzie prowadzę blo
 
 ---
 
-## Wersja 1.5: Kalejdoskop nieporozumień (Kaleidoscope of Misunderstandings)
+## Wersja 1.5: Kalejdoskop nieporozumień
 ### 4500-6000 słów
 
 *Nazywam się Jadzia Kim i mieszkam w Polsce od sześciu lat. Historia, którą zaraz usłyszycie, została mi opowiedziana w bardzo nietypowy sposób. Podczas remontu łazienki w jednej z warszawskich kamienic, ekipa budowlana znalazła dziwne zapiski ukryte za płytkami. Okazało się, że to pamiętniki... przedmiotów łazienkowych. Tak, dobrze czytacie. Pozwólcie, że oddam głos prawdziwym świadkom tej międzykulturowej sagi.*
 
-### Głos Pierwszy: Prysznic (Polski, uwięziony za szybą)
+### Głos pierwszy: prysznic (polski, uwięziony za szybą)
 
 Jestem Prysznic. Mieszkam w tej łazience od 1987 roku. Pamiętam czasy, gdy byłem dumnym przedstawicielem polskiej myśli technicznej – solidna rama, grube szkło, drzwi, które trzaskały z satysfakcjonującym hukiem. Przez lata służyłem rodzinie Kowalskich. Pan Kowalski wchodził, brał pięciominutowy prysznic, wychodził. Pani Kowalska – dziesięć minut, z myciem włosów. Ich syn – piętnaście minut, głównie stał pod strumieniem i rozmyślał. Wszyscy respektowali podstawową zasadę: woda zostaje W ŚRODKU kabiny.
 
