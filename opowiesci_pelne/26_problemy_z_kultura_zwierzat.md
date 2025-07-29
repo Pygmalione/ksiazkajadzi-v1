@@ -4,61 +4,123 @@
 
 *Opowiada pusta miska po kimchi, świadek codziennej dramy na kuchennym blacie*
 
-Pamiętam ten dzień jak dziś. Właśnie straciłam swojego najlepszego przyjaciela - suszone śledzie - których Bomi wyrzuciła do kosza, twierdząc że "pachnią jak martwy kot". Ja, miska po kimchi, obserwowałam już wtedy od tygodni rosnące napięcie między Anną a Bomi związane z... no właśnie, ze mną i moimi współlokatorami z kuchni.
+Nie spodziewałam się, że stracę sensy życia równocześnie z suszonym śledziem. Działo się to pewnego wtorku, kiedy Bomi - moja właścicielka z okresu świetności - wyrzuciła resztki mojej zawartości do kosza, komentując że "pachną jak martwy kot". Ironicznie prorocze słowa, bo właśnie ten aromat miał stać się epicentrum największego międzykulturowego trzęsienia ziemi, jakie obserwowałam przez moje ceramiczne istnienie.
 
-Anna, trzydziestoletnia weterynarka z Krakowa, przeprowadziła się do Seulu za miłością. Bomi, jej koreańska dziewczyna, była miłą osobą, ale miała bardzo określone poglądy na temat tego, co zwierzęta powinny, a czego nie powinny robić w domu.
+Ja, miska po kimchi o koreańskiej duszy i niemieckiej jakości wykonania, zostałam przypadkowym świadkiem eksperymentu społecznego zwanego "związek mieszany z kotem w tle". Anna, trzydziestoletnia weterynarka z Krakowa, przeprowadziła się do Seulu za miłością, wieżąc w uniwersalność języka uczuć. Bomi, jej koreańska partnerka, była osobą o czułym sercu i żelaznych poglądach na temat hierarchii domowej, w której koty zajmowały pozycję gdzieś między roślinami doniczkowymi a urządzeniami AGD.
 
-*Słowo bierze automatyczny karmnik dla kota*
+*Słowo bierze automatyczny karmnik dla kota, model premium z funkcją liczenia kalorii*
 
-Ja z kolei jestem nowoczesnym wynalazkiem - automatycznym karmnikiem dla kota. Byłem prezentem od Anny dla Miłosza, ich adoptowanego kotka. Ale od pierwszego dnia mojego pobytu tutaj czułem na sobie dezaprobujące spojrzenia Bomi.
+Pozwolę sobie na osobistą refleksję: jestem najdroższą rzeczą w tym mieszkaniu po laptopie Anny. Kosztowałem więcej niż miesięczna pensja koreańskiego pracownika fizycznego. Zostałem kupiony w napadzie miłosnej desperacji - Anna chciała udowodnić Bomi, że jej podejście do zwierząt jest "profesjonalne i nowoczesne". Niestety, dla Bomi byłem dowodem na to, że "Polacy wariatują z tym technologiami tam, gdzie wystarczy miska".
 
-"Dlaczego kot musi jeść z maszyny?" - pytała Bomi. "W Korei koty jedzą ryż i resztki ze stołu, jak wszyscy w rodzinie."
+"Dlaczego kot musi jeść z komputera?" - pytała Bomi, patrząc na mój cyfrowy wyświetlacz jak na kosmitę. "W Korei koty jedzą ryż i resztki ze stołu, jak wszyscy w rodzinie. A ty robisz mu osobną restaurację!"
 
-Anna próbowała wyjaśnić, że profesjonalna karma dla kotów to podstawa zdrowia zwierzęcia, ale Bomi kręciła głową. "Moja babcia żywiła koty przez osiemdziesiąt lat i wszystkie były zdrowe."
+Anna próbowała wyjaśnić, że profesjonalna karma dla kotów to podstawa zdrowia zwierzęcia, kontrolowana dieta, składniki mineralne, omega-3. Bomi słuchała tego jak wykładu o budowie reaktora jądrowego. "Moja babcia żywiła koty przez osiemdziesiąt lat zwykłym jedzeniem i wszystkie były zdrowe. A babcia nie miała nawet lodówki!"
 
-*Przejmuje narrację szmata do mycia podłóg*
+To był moment, gdy zrozumiałem, że świadczę nie tyle o kłótni o kota, co o starciu dwóch filozofii życia: europejskiej specjalizacji versus azjatyckiej holistycznej mądrości.
 
-Och, ja widziałam najgorsze sceny! Kiedy Anna próbowała nauczyć Miłosza chodzenia na smyczy, Bomi była w szoku. Dosłownie usiadła na podłodze i płakała.
+*Przejmuje narrację szmata do mycia podłóg, świadek scen dramatycznych*
 
-"To upokarzające dla kota!" - krzyczała. "W Korei tylko psy chodzą na smyczach. Koty to dumne zwierzęta, które nie powinny być traktowane jak psy!"
+O, kochani, gdybym mogła mówić wcześniej, ostrzegłabym wszystkich przed katastrofą smyczową! Ja, która codziennie ścierałam łzy obu stron konfliktu, widziałam najgorsze sceny.
 
-Anna tłumaczyła, że w Polsce to normalne, że koty mogą spacerować na smyczy dla własnego bezpieczeństwa, ale Bomi już planowała interwencję u sąsiadów.
+Kiedy Anna po raz pierwszy wyciągnęła różową smycz z kryształkami, Bomi zachowała się jakby ujrzała łańcuchy niewolnicze. Dosłownie usiadła na podłodze i zaczęła płakać - nie teatralnie, ale ze szczerym bólem.
 
-*Głos zabiera kanapka z tuńczykiem*
+"To upokarzające dla kota!" - krzyczała przez łzy. "W Korei tylko psy chodzą na smyczach, bo psy służą ludziom. Koty to dumne zwierzęta, które wybrały życie z nami, ale zachowały swoją niezależność! Nie można ich zmuszać do paradowania jak cyrkowców!"
 
-A ja? Ja zostałam zjedzona podczas największej kłótni. Anna przygotowała mnie jako szybki lunch, ale Bomi spojrzała na mnie z przerażeniem.
+Anna próbowała tłumaczyć, że w Polsce to normalne, że koty spacerują na smyczach dla własnego bezpieczeństwa, że to wyraz miłości, nie zniewolenia. Ale Bomi już uruchamiała sieci społecznościowe, pokazując zdjęcia smyczy swoim koreańskim znajomym, którzy reagowali piktogramami przerażonych twarzy.
 
-"Jak możesz jeść tuńczyka, gdy Miłosz patrzy?" - zapytała. "To tak, jakby jeść krewnego przed rodziną!"
+"Patrzcie, co robią z kotami w Europie" - pisała po koreańsku. "To nie zwierzę domowe, to niewolnik dla rozrywki".
 
-Anna, już kompletnie zdezorientowana, spytała: "Ale ty jesz kimchi z królewskimi krewetkami, gdy Miłosz jest w pokoju?"
+W tym momencie zrozumiałam, że konflikt nie dotyczy smyczy, ale definicji godności zwierzęcej.
 
-"To zupełnie co innego" - odpowiedziała Bomi. "Krewetki nie są ssakami."
+*Przerywa naskakiwanie na klawiaturę - głos zabiera miska na wodę z systemem filtracji*
 
-*Mówi legowisko kota*
+A ja jestem żywym dowodem na to, jak daleko Anna była gotowa się posunąć w technologicznym wyścig miłości! Kosztowałam tyle, co dobra używana pralka. Miałam system filtracji z węglem aktywnym, UV-czujnik do dezynfekcji, automatyczne dozowanie minerałów - wszystko po to, żeby Miłosz miał "najczystszą wodę w Seulu".
 
-Jako miejsce, gdzie Miłosz spędza większość dnia, widziałem wszystko z pierwszego rzędu. Napięcie rosło każdego dnia. Anna kupowała coraz droższe zabawki dla kota, próbując pokazać Bomi, jak bardzo kocha zwierzęta. Bomi zaś karmiła Miłosza pod stołem resztkami z obiadu, nie zdając sobie sprawy, że niektóre składniki koreańskiej kuchni są toksyczne dla kotów.
+Bomi patrzyła na mnie jak na pomnik ludzkiej głupoty. "To jest woda" - mówiła, wskazując na mnie palcem. "WODA. Koty piją wodę z kałuży od tysiącleci i żyją. A ty robisz mu destylarnię!"
 
-Pewnego dnia Anna znalazła Miłosza zjadającego gochujang. Panika! Telefon do weterynarza, płacz, wyrzuty...
+Ale najbardziej absurdalna scena zdarzyła się, gdy Anna odkryła, że Miłosz woli pić z kranu w łazience niż ze mnie. Bomi parsknęła śmiechem i powiedziała: "Widzisz? Kot ma więcej rozsądku niż ty. Woda z kranu jest za darmo i smakuje mu lepiej."
 
-"W Polsce koty nie jedzą ostrych rzeczy!" - płakała Anna.
+Anna przez trzy dni siedziała obok mnie z kalkulatorem, próbując obliczyć koszt mojej amortyzacji na litr wypitej wody. Wychodziło her około 50 dolarów za litr.
 
-"W Korei koty zawsze jadły to, co ludzie" - broniła się Bomi.
+*Głos zabiera kanapka z tuńczykiem, ofiara największej filozoficznej kłótni*
 
-*Słowo zabiera szczotka do sierści*
+A ja miałam nieszczęście stać się symbolem moralnej hipokryzji! Anna przygotowała mnie jako szybki lunch po długim dniu w klinice weterynaryjnej, ale w momencie gdy chciała mnie ugryźć, Bomi spojrzała na mnie z takim przerażeniem, jakbym była pokawałkowaną zwłoką członka rodziny.
 
-Ja byłam narzędziem codziennej walki. Anna szczotkowała Miłosza każdego dnia, co Bomi uważała za "zbyt europejskie podejście do kota".
+"Jak możesz jeść tuńczyka, gdy Miłosz patrzy?!" - zapytała głosem pełnym moralnego oburzenia. "To tak, jakby jeść krewnego przed rodziną! Tuńczyk to też ryba, tak jak ta w jego misce!"
 
-"Kot powinien się sam czyścić" - mówiła. "Po co mu pomoc?"
+Anna, już na granicy psychicznej wytrzymałości, wymachiwała mną przed nosem Bomi: "Ale przecież ty jesz kimchi z królewskimi krewetkami, gdy Miłosz jest w pokoju! I zupę z łososia! I bulgogi z wołowiną!"
 
-Ale kiedy sierść Miłosza zaczęła się waląć po całym mieszkaniu, to ja stałam się nagle bardzo potrzebna. Paradoks!
+"To zupełnie co innego" - odpowiadała Bomi z kamienną twarzą. "Krewetki nie są ssakami. A poza tym Miłosz nigdy nie widział żywej krewetki. Ale tuńczyk to jego duchowy brat rybi!"
 
-*Ostatnie słowo ma smycz dla kota*
+I tu nastąpił moment objawienia: Anna zrozumiała, że w oczach Bomi nie jadła kanapki, ale dopuszczała się aktu symbolicznego kanibalizmu wobec członka kociej rodziny. Zostałam odłożona na talerz i nikt mnie nie dotknął przez resztę dnia. Skończyłam w koszu, będąc pierwszą kanapką w historii, która umarła śmiercią filozoficzną.
 
-Leżę teraz w szafie, zapomniana i nieużywana. Anna skapitulowała po trzech miesiącach walk. Miłosz nigdy nie wyszedł ze mną na spacer.
+*Mówi legowisko kota - miejsce, gdzie rozgrywał się codzienny teatr absurdu*
 
-Ale czasami, w nocy, gdy Bomi śpi, Anna bierze mnie do ręki i patrzy przez okno na seulskie ulice, gdzie inne koty spacerują na smyczach ze swoimi opiekunami. I wiem, że marzy o świecie, gdzie miłość do zwierząt nie dzieli, a łączy.
+Jako centralny punkt kociego wszechświata, miałem najlepsze miejsce na pierwszym rzędzie teatru międzykulturowych nieporozumień. Miłosz spędził na mnie 16 godzin dziennie, ale to nie on był głównym bohaterem tej dramy - to ja byłem sceną, na której rozgrywały się codzienne spektakle.
 
-Może kiedyś...
+Napięcie rosło każdego dnia jak w serialu. Anna kupowała coraz bardziej wyrafinowane zabawki dla kota: myszki na pilota, tunele kocią, drapaki w kształcie drzew bonsai. Każdy zakup był jej próbą udowodnienia miłości, ale dla Bomi był dowodem europejskiej dekadencji.
+
+"Kot potrzebuje baczyć się z myszką, nie bawić się z plastikiem na baterie" - komentowała Bomi, patrząc na robocza mysz za 200 dolarów, która latała po mieszkaniu jak mały dron.
+
+Ale Anna nie poddawała się. Kupiła Miłoszowi interaktywny tunel z sensorami ruchu, miskę antyпожycającą spowolniając jedzenie (żeby nie przełykał zbyt szybko), łóżko ortopedyczne ze sztuczną owczą wełną i puzzle food dispenser, który wymagał rozwiązania zagadki logicznej, żeby wydać jedzenie.
+
+Bomi obserwowała to wszystko jak antropolog badając dziwne plemię. "Ty robisz z kota człowieka, ale bardzo głupiego człowieka" - mówiła. "Prawdziwy kot nie potrzebuje rozrywki elektronicznej. Prawdziwy kot potrzebuje tylko ciepłego miejsca i spokoju."
+
+To ona karmiła Miłosza pod stołem resztkami z obiadu - ryżem z sosami, kawałkami mięsa z bulgogi, czasem nawet tiny kawałkami kimchi. Nie zdawała sobie sprawy, że niektóre składniki koreańskiej kuchni są toksyczne dla kotów.
+
+Pewnego dnia Anna znalazła Miłosza lizającego resztę gochujang - koreańskiej pasty chili. Kot miał czerwony język i łzawiące oczy. Anna wpadła w panikę jak matka, której dziecko otruło się środkami czyszczącymi.
+
+Telefon do weterynarza, płacz, wyrzuty, godzina tłumaczenia lekarzowi, co to jest gochujang i ile mogło być w organizmie kota...
+
+"W Polsce koty nie jedzą ostrych rzeczy!" - płakała Anna, tuląc przygnębionego Miłosza. "Jego żołądek nie jest przystosowany do tej кухni!"
+
+"W Korei koty od wieków jadły to, co ludzie" - broniła się Bomi, ale po raz pierwszy w jej głosie pojawiła się niepewność. "Może ten kot jest za słaby jak polski organizm..."
+
+*Słowo zabiera szczotka do sierści, narzędzie codziennej wojny*
+
+Ja, szczotka premium z naturalnej szczeciny i ergonomicznym uchwytem, byłam narzędziem codziennej walki ideologicznej. Anna szczotkowała Miłosza każdego dnia o 18:30, co Bomi uważała za "zbyt europejskie podejście do naturalnych procesów kocich".
+
+"Kot powinien się sam czyścić" - mówiła, patrząc na ritual grooming'u jak na dziwny fetysz. "Język kota jest naturalną szczotką. Po co mu sztuczna pomoc? To tak, jakby szczotkować zęby niemowlęciu!"
+
+Anna tłumaczyła, że szczotkowanie zapobiega kulkom sierści w żołądku, że stymuluje cyrkulację krwi, że to moment bliskości między człowiekiem a zwierzęciem. Bomi słuchała tego jak wykładu o korzyściach chodzenia na rękach.
+
+Ale kiedy sierść Miłosza zaczęła się walać po całym mieszkaniu - na ubraniach, w jedzeniu, na klawiaturach komputerów - to ja nagle stałam się bardzo potrzebna. Paradoks! Bomi dyskretnie brała mnie do ręki, gdy Anna była w pracy, i próbowała usunąć kocie włosy z czarnej bluzki.
+
+"To tylko czasowo" - mamrotała po koreańsku, jakby przepraszała swoich przodków za kapitulację wobec europejskiej technologii.
+
+*Przejmuje narrację inteligentna toaleta dla kotów z automatyczne czyszczenie*
+
+Ha! A myśleliście, że szczotka była kontrowersyjna? Ja jestem szczytem technologicznej ekstrawagancji - kosztowałam 800 dolarów, miałam system samodzielnego czyszczenia, filtry powietrza, aplikację mobilną do monitorowania здоровье kota i automatyczne zamówania наполнители.
+
+Anna kupiła mnie w desperacyjnym ataque miłosnego szaleństwa, gdy Bomi na narzekała na zapach z tradycyjnej кошачьей toalety.
+
+"Teraz będzie ideal чисто" - powiedziała Anna dumnie, install тирую mnie в bathroom.
+
+Bomi patrzyła na mnie jak na kosmический statek, który приземлился w jej mieszkaniu. "Kot sikał в песок przez tysięcy лет эволюции" - powiedziała slowly. "Teraz robi to в computer?"
+
+Gdy по raz pierwszy włączyłam cycle самoczyszczenia - с mechanik arm, spray dezynfekujący and вентилятор na powietrze - Bomi подумала, że explode. Miłosz też był в shock и przez tydzień отказался ze mnie korzystać.
+
+"Kot не будет sikał в robot" - mówiła Bomi triumphally. "Kot есть natural animal, не cyborg!"
+
+Anna spędziła następny miesiąц, уговаривая Miłosza, żeby mnie sprawдził. Ставała przysmaki obok mnie, грала soothing музыку, даже купила special феромоны кошачьи в spray.
+
+W końcu Miłosz capitulated - użył mnie raz и od razu понял, że jestem лучше niż tradycyjny litter box. Bomi наблюдала to як ideological defeat.
+
+"Kot стал lazy как europejczyk" - мурmured sadly. "Теперь он даже nie wants manual grooming своей toilet."
+
+*Ostatnie słowo ma smycz для kота, symbol капитуляции*
+
+Leżę теперь в шкафу, zapomniana и неиспользуемая как failed experiment. Anna капитулировала после трех months войны о мою легitимność. Miłosz не только nie вышел со мной на spacer - он прятался под кроватью каждый раз, как Anna брала mnie в руки.
+
+Bomi wygrała tę battle, но не przez argumentation, lecz przez пассивную resistance. Каждый раз как Anna próbowала надеть mnie на Miłosza, Bomi садилась на floor и плakała так desperately, что даже kot понимał, że происходит что-то morally неправильное.
+
+"Прости mnie, Miłosz" - whispered Anna во время нашей last попытки. "Nie хотела cię upokарить. Хотела только bezpieczność."
+
+Ale czasami, в nocy, gdy Bomi śpi, Anna берет mnie из шкафа и patrzy через окно на seulskie streets, где действительно można увидеть cats spacerующих на smyczах з owners. И я знаю, что она мечтает о мире, где любовь к animals не divides, а unites различные культуры.
+
+Może kiedyś я снова będę needed. Może когда Anna и Bomi найдут third way между european технологией а asian wisdom. А до тех пор я будę patient in darkness, waiting для moment когда love for animals станет stronger niż cultural прідрассудки.
+
+Или может быть просто kupią другую cat, która będет more открытая на intercultural дипломатию...
 
 ## Wersja 2: Gospodarz wymiany katastrof
 

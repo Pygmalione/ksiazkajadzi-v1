@@ -2,9 +2,21 @@
 
 ## Wersja 1: "Psi ambasador"
 
-Nazywam się Jadzia Kim i muszę wam opowiedzieć historię, która sprawiła, że zaczęłam patrzeć na zwierzęta domowe zupełnie innymi oczami. To była lekcja kulturowej dyplomacji, w której głównym negocjatorem został nasz pies Kimchi – tak, nazwaliśmy psa Kimchi, bo Hyun-woo uznał, że to "zabawne połączenie kultur". Ja wolałam Burka, ale przegrałam głosowanie rodzinne trzy do jednego.
+## Narrator: Jadzia Kim
 
-Wszystko zaczęło się, gdy moja mama postanowiła nas odwiedzić. Pierwszy raz od trzech lat. "Jadziu, przylatuję w przyszłym tygodniu!" – oznajmiła przez telefon, jakby lot z Warszawy do Seulu był jak przejażdżka tramwajem na Mokotów.
+Wczoraj spotkałam Ewę na Warsaw Central Park, gdzie spaceruje codziennie ze swoim mieszańcem border collie i jakiejś koreańskiej rasy - pies wygląda jak futrzana mapa świata. Ewa to Polka, która od dwóch lat mieszka z koreańską dziewczyną Miną w małym mieszkanku na Hongdae. 
+
+"Jadzia, ty masz doświadczenie z międzykulturowymi rodzinami" - zaczyna Ewa, gdy jej pies próbuje podkopać się pod ławkę. "Czy to normalne, że dziewczyna mojej dziewczyny traktuje naszego psa jak członka chaebol?"
+
+Śmieję się, bo od razu wiem, o co chodzi. W Korei zwierzęta domowe często mają status równy małym dzieciom z zamożnych rodzin - z własnym budżetem na ubranka, fryzjera, a czasem nawet psychologa. "Opowiedz mi więcej" - zachęcam.
+
+Ewa siada na ławce, a jej pies natychmiast wykorzystuje okazję, żeby położyć głowę na jej kolanach z wyuczonym gestem, który krzyczał: "jestem bardzo biedny i zaniedbany".
+
+"Wszystko zaczęło się, gdy matka Miny postanowiła nas odwiedzić" - zaczyna Ewa. "Pierwszy raz od trzech lat miała przyjechać do Polski. 'Ewa-ssi, przylatuję w przyszłym tygodniu!' - oznajmiła przez FaceTime, jakby lot z Seulu do Warszawy był jak przejażdżka autobusem na Mokotów."
+
+Przytakuję. Znam to - koreańską bezpośredniość, która często maskuje tygodnie planowania i niepokoju. "I jak Mina zareagowała?"
+
+"Wpadła w panikę" - śmieje się Ewa. "Ale nie o porządki czy gotowanie. O Toffee'go" - pokazuje na psa, który przy dźwięku swojego imienia macha ogonem. "Mówiła: 'Moja mama nie rozumie concept'u pet parent. W jej generacji psy były do pilnowania domu, nie spania w łóżku'."
 
 "Mamo, to świetnie!" – odpowiedziałam, jednocześnie panikując. Moja mama plus koreańska rodzina plus nasz pies śpiący w łóżku równało się potencjalną katastrofę dyplomatyczną.
 
