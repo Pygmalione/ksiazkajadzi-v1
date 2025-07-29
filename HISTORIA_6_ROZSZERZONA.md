@@ -6,21 +6,107 @@
 
 *Jadzia Kim*
 
-Marek wszedł do koreańskiej restauracji jak turysta do muzeum - z miną kogoś, kto wie, że za chwilę zobaczy coś ważnego, ale nie ma pojęcia co. Powietrze pachniało grillowanym mięsem, fermentowaną soją i tym szczególnym zapachem koreańskiej restauracji - mieszanką sesamu, czosnku i gochujang, który przesiąka wszystko i wszędzie.
+Wszystko zaczęło się od pytania, które zadał mi Marek podczas niedzielnego śniadania nad talerzem jajecznicy, który przygotowywał według własnego, rewolucyjnego przepisu: "Czy mogę pójść z tobą na tę firmową kolację?"
 
-"Czy one faktycznie muszą być takie głośne?" - zapytał, patrząc na ajumma (starsze panie obsługujące), które krzyczały do siebie z kuchni jak spiker sportowy komentujący finał mistrzostw.
+Przerwałam żucie kanapki i spojrzałam na niego jak na kogoś, kto właśnie zapytał, czy może mi pomóc przesunąć fortepian na dziesiąte piętro bez windy. Nie dlatego, że to niemożliwe - tylko dlatego, że nie był świadom konsekwencji.
 
-"Tak krzyczą ze szczęścia, że mają klientów" - wyjaśniłam, poprawiając mu koszulę. "I pamiętaj - nie możesz odmówić alkoholu. To obraza."
+"Na hoesik?" - upewniłam się, chociaż doskonale wiedziałam, o co pyta.
 
-Koreańska kolacja firmowa - hoesik - to instytucja świętszej niż Wigilia. To nie jest zwykłe spotkanie w restauracji. To rytuał przemiany, podczas którego prezes przestaje być prezesem, a praktykanci przestają się ukrywać w toaletach. Na jedną noc wszyscy stają się jedną wielką, pijaną rodziną korporacyjną, gdzie prawda wypływa razem z soju, a hierarchie topią się w dymie z grilla.
+"Na tę kolację w koreańskiej restauracji. Mówiłaś, że będzie w piątek. Chciałbym poznać twoich kolegów z pracy."
 
-Problem polegał na tym, że nikt tego nie wytłumaczył Markowi - mojemu polskiemu chłopakowi, programiście, który ostatni raz był na firmowej imprezie podczas gwiazdki w 2019 roku i uważał, że toast to maksimum zobowiązań społecznych.
+W tym momencie powinienem była mu wytłumaczyć, że hoesik to nie jest kolacja. To jest socjologiczny eksperyment przeprowadzany na żywych ludziach przy użyciu alkoholu ryżowego, gdzie hipotezą jest "co się stanie, jeśli usuniemy wszystkie społeczne hamulce z grupy dorosłych ludzi w garniturach". Ale zamiast tego powiedziałam:
 
-"To będzie jak zwykła kolacja służbowa" - skłamałam bez mrugnięcia okiem. "Trochę galbi, trochę soju, trochę rozmów o nowych projektach."
+"Jasne, skarbie. To będzie miłe."
 
-Gdybym wiedziała, że za pięć godzin Marek będzie śpiewał "Małgośkę" do mikrofonu, podczas gdy mój szef płacze mu na ramieniu opowiadając o rozwodzie, a ja będę tłumaczyć kierowniczce, dlaczego mój chłopak nazywa ją "noona" (starsza siostra), to może przygotowałabym go inaczej. Albo w ogóle go nie zabrała.
+Gdybym wiedziała, że za sześć godzin Marek będzie stał na krześle w warszawskiej restauracji koreańskiej, śpiewając "Małgośkę" Budki Suflera, podczas gdy mój pięćdziesięcioletni szef płacze mu na ramieniu wyznając miłość do polskiego narodu, a pani Park z marketingu dokumentuje to wszystko telefonem z entuzjazmem reżysera filmowego - może wybrałabym inne słowa.
 
-Ale po kolei - bo ta historia to jak dobry hoesik, trzeba zacząć od początku i wypić każdy kieliszek do końca.
+Albo inne pytanie śniadaniowe.
+
+Albo w ogóle inne życie.
+
+**FAZA ZERO: PRZYGOTOWANIA DO KATASTROFY**
+
+Marek wszedł do koreańskiej restauracji "Seoul House" jak turysta wchodzący do Luwru - z tym szczególnym wyrazem twarzy, który oznacza: "Wiem, że to będzie kulturalnie cenne doświadczenie, ale nie mam pojęcia, czego się spodziewać".
+
+Powietrze uderzyło go mieszanką aromatów, która w koreańskiej restauracji zawsze jest taka sama: grillowane mięso, fermentowana soja, gochujang (pasta chili), sesam, czosnek, i ten nieopisywalny zapach, który powstaje, gdy wszystkie te składniki przez lata osiadają na ścianach, meblach i nawet na lampach. To zapach, który nie istnieje nigdzie indziej na świecie - ani w domach koreańskich, ani w innych azjatyckich restauracjach. To zapach wyłącznie koreańskich restauracji w Polsce, prowadzonych przez ajumma, które pamiętają jeszcze czasy, gdy kimchi było czymś egzotycznym.
+
+"Czy one muszą być takie... energiczne?" - zapytał Marek, obserwując ajumma, które krzyczały do siebie z kuchni z intensywnością komentatorów sportowych podczas finału mundialu.
+
+Jedna z nich właśnie wyjaśniała drugiej, dlaczego klient ze stolika numer 4 nie może dostać kimchi "nie za ostrego", bo - jak tłumaczyła z pasją filozofa - "kimchi bez ostrości to jak polskie pierogi bez ziemniaków - może wygląda podobnie, ale traci sens swojego istnienia".
+
+"One nie krzyczą ze złości" - wyjaśniłam Markowi, poprawiając mu krawat, który miał lekko przekrzywiony (zawsze miał lekko przekrzywiony, to była jego naturalna pozycja domyślna). "One krzyczą ze szczęścia, że ktoś przyszedł zjeść ich jedzenie. To jak polskie babcie, tylko głośniej i z większą ilością fermentowanych warzyw."
+
+"I pamiętaj" - dodałam, patrząc mu głęboko w oczy jak chirurg przed skomplikowaną operacją - "nie możesz odmówić alkoholu. To nie jest sugestia, to nie jest propozycja, to nie jest opcja. To jest niepisane prawo fizyki w hoesik. Odmówienie alkoholu to jak odmówienie oddychania - teoretycznie możliwe, ale kończy się bardzo źle."
+
+Marek skinął głową z powagą kogoś, kto właśnie otrzymał instrukcje do obsługi bomby atomowej, ale wciąż nie rozumiał, dlaczego w ogóle ma do czynienia z bombą atomową.
+
+**FAZA PIERWSZA: POZNAJCIE PAŃSTWO HIERACHIĘ**
+
+Koreańska kolacja firmowa - hoesik - to instytucja świętsza niż polska Wigilia, bardziej rytualna niż msza święta, i bardziej przewidywalna niż polskie skargi na pogodę. To nie jest zwykłe spotkanie w restauracji. To jest antropologiczny fenomen, podczas którego grupa cywilizowanych dorosłych ludzi przechodzi kontrolowaną metamorfozę z professional corporate beings w emotional human creatures, używając do tego celu alkoholu ryżowego jako katalizatora.
+
+W tej przemianie prezes przestaje być prezesem i staje się "człowiekiem z problemami małżeńskimi". Kierowniczka działu przestaje być kierowniczką i staje się "kobietą, która pokazuje zdjęcia swojego kota". Programiści przestają ukrywać się w toaletach i stają się "ludźmi, którzy mają opinie na temat życia". A praktykanci przestają się bać o swoją pracę i stają się "młodymi ludźmi, którzy mogą w końcu powiedzieć co myślą".
+
+Na jedną noc wszyscy stają się jedną wielką, pijaną, emocjonalną rodziną korporacyjną, gdzie prawda wypływa razem z soju jak woda z pękniętej rury, a hierarchie topią się w dymie z grilla jak masło na gorącej patelni.
+
+Problem polegał na tym, że nikt tego nie wytłumaczył Markowi - mojemu polskiemu chłopakowi, programiście full-stack, który ostatni raz był na firmowej imprezie podczas gwiazdki w 2019 roku i do dziś opowiada tę historię jak wojenną traumę. Dla Marka idealna kolacja służbowa to pizza zamówiona do biura, zjedzona przy komputerze, podczas której rozmawia się wyłącznie o projektach i nikt nie wymaga kontaktu wzrokowego.
+
+"To będzie jak zwykła kolacja służbowa" - skłamałam bez mrugnięcia okiem, z nieprzejednanym spokojem kobiety, która właśnie sprzedała swojemu partnerowi bilet na Titanica, opisując go jako "przyjemny rejs po Atlantyku". "Trochę galbi, trochę soju, trochę rozmów o nowych projektach. Nic specjalnego."
+
+To był moment, w którym powinienem była dodać: "A, i będziecie śpiewać karaoke do trzeciej rano, mój szef będzie ci płakał na ramieniu opowiadając o swoim rozwodzie, poznasz wszystkie sekrety firmowe łącznie z tym, kto z kim miał romans na ostatniej konferencji, i będziesz musiał tańczyć gangnam style na środku restauracji".
+
+Ale tego nie dodałam. Bo czasem miłość oznacza ochronę partnera przed pełną prawdą, dopóki nie jest na nią gotowy.
+
+Gdybym wiedziała, że za pięć godzin Marek będzie śpiewał "Małgośkę" do mikrofonu z taką pasją, jakby to była aria z "Tosci" wystawianej w La Scali, podczas gdy mój szef - pan Kim, pięćdziesięcioletni dyrektor działu IT - płacze mu na ramieniu opowiadając o rozwodzie i o tym, że zawsze marzył o synu, ale ma tylko córkę, która nie chce z nim rozmawiać od czasu, gdy dowiedziała się, że spotyka się z sekretarką... 
+
+Gdybym wiedziała, że będę tłumaczyć pani Park z marketingu, dlaczego mój chłopak nazywa ją "noona" (starsza siostra), chociaż ma na imię Beata i pochodzi z Radomia...
+
+Gdybym wiedziała, że pan Lee z działu sprzedaży będzie uczył Marka tańczyć gangnam style na stoliku, podczas gdy ajumma będą klaskaé i krzyczećm "Aja! Aja!" jak na meczu piłki nożnej...
+
+To może przygotowałabym go inaczej. Albo w ogóle go nie zabrała. Albo wyprowadziliśmy się do Nowej Zelandii, gdzie problemy międzykulturowe ograniczają się do tego, czy wołowina powinna być grillowana czy smażona.
+
+Ale życie to nie jest film, w którym mamy scenariusz. Życie to improwizacja, a hoesik to najlepszy przykład na to, że czasem najlepsza improwizacja kończy się totalnym chaosem, który jednak wszyscy wspominają z rozrzewnieniem.
+
+Ale po kolei - bo ta historia to jak dobry hoesik, trzeba zacząć od początku i wypić każdy kieliszek do końca, nie pomijając ani jednego toastu.
+
+**FAZA DRUGA: HIERARCHIA JAKO SZTUKA TEATRALNA**
+
+Hoesik w firmie Samsung Electronics Polska rozpoczął się tradycyjnie - w restauracji "Seoul House" na Nowym Świecie, gdzie ajumma poznają stałych klientów nie tylko po imieniu, ale także po ich preferencjach dotyczących ostrości kimchi, gdzie zapach fermentowanych warzyw miesza się z warszawskim smogiem już na trzecim piętrze kamienicy, a gdzie każdy stolik ma swoją historię opowiedzianą przez plamy po soju i ślady łez na obrusach.
+
+Stół dla trzynastu osób (licząc Marka jako bonus guest) był ustawiony zgodnie z niepisanym kodeksem koreańskiej hierarchii społeczno-biznesowej. Każde miejsce oznaczone małymi karteczkami z nazwiskami, napisanymi przez ajumma pismem, które wyglądało jak połączenie hangulu z polską kaliografią - hierarchia widoczna jak schemat organizacyjny firmy narysowany bezpośrednio na białym obrusie.
+
+Wszyscy przyszli w swoich biurowych mundurach - ciemne garnitury, białe koszule wyrasowane do perfekcji, czarne buty wypolerowane do połysku. Sztywni jak figurki w korporacyjnej grze planszowej, gdzie każda runda kończy się albo awansem, albo degradacją, albo wypiciem kolejnego kieliszka soju.
+
+"To wygląda jak pogrzeb korporacji" - szepnął Marek, oglądając wnętrze restauracji dekorowane czerwonymi lampionami, zdjęciami wszystkich prezydentów Korei Południowej od czasów Sygnmana Rhee, i plakatami reklamującymi soju z hasłami w języku koreańskim, które brzmiały jak manifest polityczny.
+
+"Na początku zawsze wygląda jak pogrzeb" - wyjaśniałam cierpliwie, poprawiając mu węzeł krawata po raz trzeci (miał talent do niszczenia węzłów krawatów w sposób, który wydawał się naruszać prawa fizyki). "Potem staje się jak wesele polsko-koreańskie. A pod koniec jak rewolucja społeczna z akompaniamentem karaoke."
+
+Marek spojrzał na mnie jak na kogoś, kto właśnie powiedział, że za chwilę będziemy latać na miotłach, ale postanowił mi zaufać, bo w końcu byłam jego przewodniczką po tym antropologicznym eksperymencie.
+
+Nie wiedział, że w koreańskim hoesik metamorfoza to nie metafora. To biochemiczny proces, w którym formal business meeting przeradza się w emotionalną grupową terapię przy akompaniamencie grilla, nieskończonych toastów, i polskich przebojów lat 80. wykonywanych z koreańskim akcentem.
+
+Pierwsza lekcja hoesik: hierarchia przy stole to rzecz świętsza niż kolejność w polskiej kolejce do urzędu miasta, bardziej nienaruszalna niż miejsca w tramwaju podczas godziny szczytu, i bardziej skomplikowana niż instrukcja obsługi pralki napisana przez kogoś, kto nigdy pralki nie widział.
+
+Pan Kim, nasz dyrektor generalny, usiadł na miejscu honorowym - plecami do ściany, z widokiem na całą restaurację jak cesarz patrzący na swoje cesarstwo lub jak Don Corleone nadzorujący rodzinny biznes. To nie przypadek - w Korei osoba najważniejsza zawsze ma kontrolę nad całą przestrzenią. Musi widzieć wszystkich, ale równocześnie nikt nie może go zaskoczyć od tyłu. To strategia militarna zastosowana do kolacji firmowej.
+
+Po jego prawej stronie, zgodnie z tradycją starszą niż konstytucja, usiadła pani Park, kierowniczka działu marketingu - druga w firmowej hierarchii władzy. Jej miejsce oznaczało szacunek i zaufanie, ale też odpowiedzialność za pilnowanie, żeby pan Kim nie wypił zbyt dużo zbyt szybko i nie zaczął opowiadać o swoich problemach małżeńskich zbyt wcześnie w wieczorze.
+
+Po lewej stronie pana Kim zajął miejsce pan Lee, szef działu IT, trzeci w piramidzie korporacyjnej władzy. Pan Lee miał szczególną rolę - był odpowiedzialny za rozrywkę, czyli za to, żeby w odpowiednim momencie zaproponować karaoke i żeby nikt nie wyszedł z restauracji trzeźwy.
+
+Każde krzesło było jak szczebel drabiny społecznej - im dalej od pana Kim, tym niższa pozycja, tym mniejsze prawo głosu, tym większy obowiązek śmiechu z żartów przełożonych. Marek usiadł tam, gdzie mu wskazałam - praktycznie przy drzwiach, obok mnie. Miejsce dla "plus jedynek", praktykantów, tłumaczy, i wszystkich, którzy nie mają służbowych kluczy do biura, ale mają prawo uczestniczyć w firmowych rytuałach.
+
+"Dlaczego nie możemy usiąść gdzie chcemy?" - zapytał Marek, patrząc tęsknie na miejsce w środku stołu, które wydawało mu się bardziej strategiczne z punktu widzenia dostępu do jedzenia.
+
+"Bo to byłby chaos społeczny" - wyjaśniłam z cierpliwością nauczycielki przedszkola tłumaczącej pięciolatkowi, dlaczego nie można jeść kredek. "W Korei hierarchia to nie tylko tytuł na wizytówce i kwota na wypłacie. To sposób na życie, system nawigacji społecznej, metoda organizacji wszechświata. Każdy wie gdzie stoi, z kim może rozmawiać, na czyje żarty musi się śmiać, i kto ma prawo pierwszego kieliszka."
+
+"Ale to jest Polska" - protestował słabym głosem. "Tu siedzimy gdzie chcemy, rozmawiamy z kim chcemy, śmiejemy się z czego chcemy."
+
+"Ale to jest koreańska firma" - odpowiadałam nieugiętie. "A w koreańskiej firmie nawet polskie prawa podlegają koreańskim zasadom społecznym. To jak gra w szachy - możesz nie lubić reguł, ale jeśli chcesz grać, musisz je respektować."
+
+"To brzmi jak kulturowy kolonializm."
+
+"To brzmi jak sposób na to, żeby wszyscy wiedzieli, kiedy mogą się odezwać, a kiedy mają słuchać, kto może nalać alkohol, a kto musi czekać, aż mu naleją, i kto ma obowiązek zaśpiewać pierwszą piosenkę karaoke."
+
+Marek wyglądał jak ktoś, kto właśnie dowiedział się, że w Polsce obowiązuje system kastowy, ale nikt mu tego wcześniej nie powiedział, więc przez trzydzieści lat łamał niepisane zasady społeczne.
 
 **FAZA PIERWSZA: HIERARCHIA JAKO RELIGIA**
 
@@ -54,195 +140,293 @@ Każde krzesło było jak szczebel drabiny korporacyjnej - im dalej od pana Kim,
 
 Marek wyglądał jak ktoś, kto właśnie dowiedział się, że w Polsce obowiązuje system kastowy.
 
-**FAZA DRUGA: ALKOHOLOWA INICJACJA**
+**FAZA TRZECIA: ALKOHOLOWA INICJACJA CZYLI JAK ZOSTAĆ KOREAŃCZYKIEM W DZIESIĘĆ MINUT**
 
-Druga lekcja: w hoesik nie nalewa się sobie alkoholu, tak jak w polskim kościele nie błogosławi się samego siebie.
+Trzecia lekcja hoesik, którą powinni znać wszyscy Polacy planujący związki międzykulturowe: w hoesik nie nalewa się sobie alkoholu, tak jak w polskim kościele nie błogosławi się samego siebie, w teatrze nie reżyseruje się przedstawienia z widowni, i w polskiej rodzinie nie nazywa się teściowej po imieniu bez pozwolenia.
 
-Kelnerka - typowa ajumma po pięćdziesiątce, w plastikowym fartuchu i z włosami jak hełm ochronny - przyniosła pierwszą butelkę soju. Nie jedną, nie dwie - od razu pięć, bo wiedziała co się dzieje. Soju wyglądał niewinnie, jak woda z lekko zielonkawym odcieniem, ale smakował jak rozcieńczona wódka z nutą słodkości, która łudzi, że to nie alkohol tylko azjatycka sprite.
+To jest zasada świętszą niż wszystkie dziesięć przykazań razem wzięte.
 
-Pan Kim otworzył pierwszą butelkę z ceremonialną powagą papieża celebrującego mszę i zaczął nalewać wszystkim do kieliszków - małych, szklanych, wielkości naparstek. Zaczynał od najstarszych, bo w Korei wiek to nie liczba na dowodzie, to poziom szacunku w społecznej hierarchii.
+Kelnerka - typowa ajumma po pięćdziesiątce, w plastikowym fartuchu ozdobionego obrazkami Hello Kitty (które w kontekście jej poważnej miny wyglądało jak tatuaże więzienne), z włosami uczesanymi w taki sposób, że przypominały hełm ochronny zaprojektowany przez architekta specjalizującego się w budowlach obronnych - przyniosła pierwszą butelkę soju.
 
-Marek, widząc że pan Kim podchodzi w jego stronę, wyciągnął rękę z kieliszkiem jak na polskim weselu - jedną ręką, pewnie, normalnie.
+Nie jedną, nie dwie - od razu siedem butelek, bo jedna ajumma poznaje się na tym, co się będzie działo, lepiej niż meteorolog przewiduje pogodę, a drugie ajumma znają swoje klientów lepiej niż psychoanalitycy swoich pacjentów po dziesięciu latach terapii.
 
-"Nie!" - syknęłam tak cicho, że tylko on słyszał. "Dwoma rękami!"
+Soju wyglądał niewinnie, jak destylowana woda z lekko zielonkawym odcieniem, który mógłby pochodzić od światła jarzeniowego odbijającego się w szklance. Ale smakował jak rozcieńczona wódka z nutą słodkości, która łudzi mózg komunikatem "to nie alkohol, to azjatycka sprite z tajemniczym dodatkiem", podczas gdy w rzeczywistości ma około 20% alkoholu i uderza do głowy z precyzją snajpera.
 
-"Jak dwoma rękami? To kieliszek, nie fortepian!"
+Pan Kim otworzył pierwszą butelkę z ceremonialną powagą papieża celebrującego mszę wigilijną w Watykanie, albo jak sommelier otwierający wino vintage warte więcej niż średnie polskie miesięczne wynagrodzenie. Zaczął nalewać wszystkim do kieliszków - małych, szklanych, wielkości naparstek, które wyglądały jakby zostały zaprojektowane specjanie po to, żeby zmaksymalizować liczbę toastów przy jednoczesnym zachowaniu kontroli nad ilością wypitego alkoholu (co jest, jak się później okazuje, złudzeniem optycznym).
 
-"Prawą trzymasz kieliszek, lewą podtrzymujesz prawą! To pokazuje szacunek!"
+Zaczynał od najstarszych, bo w Korei wiek to nie tylko liczba na dowodzie osobistym, to poziom szacunku w społecznej hierarchii, oznakowanie w systemie klas społecznych, i jednocześnie prawo do pierwszego kieliszka alkoholu oraz ostatniego kawałka mięsa z grilla.
 
-Marek wykonał manewr wyglądający jak skomplikowana pozycja z jogi dla zaawansowanych, ale jakoś się udało. Pan Kim nalał mu soju z uśmiechem aprobaty - pierwszy punkt dla Polaka.
+Marek, widząc że pan Kim podchodzi w jego stronę z butelką soju jak kapłan z kielichem dla komunii, wyciągnął rękę z kieliszkiem jak na polskim weselu - jedną ręką, pewnie, normalnie, tak jak uczyli go rodzice i jak robił to przez całe życie przy każdej okazji wymagającej nalewania alkoholu.
 
-"Teraz musisz pić" - szepnęłam.
+"Nie!" - syknęłam tak cicho i szybko, że brzmiało to jak wąż ostrzegający przed atakiem. "Dwoma rękami!"
 
-"Mogę skosztować?"
+"Jak dwoma rękami?" - zapytał Marek z miną kogoś, kto właśnie dowiedział się, że przez całe życie źle oddychał. "To kieliszek, nie fortepian! Nie przeprowadzam operacji na otwartym sercu!"
 
-"Na raz. Cały. I odwrócić się od starszych, żeby nie widzieli jak pijesz."
+"Prawą ręką trzymasz kieliszek, lewą ręką podtrzymujesz prawą rękę od spodu! To pokazuje szacunek do osoby nalewającej i uznanie dla alkoholu!"
 
-"Dlaczego?"
+"To ma jakiś sens fizyczny czy kulturowy?"
 
-"Bo to niegrzeczne pić alkohol w obecności starszych. Musisz udawać, że jesteś skromny."
+"Kulturowy! I nie dyskutuj, tylko rób!"
 
-Marek wypił soju jednym haustem, odwracając się w stronę okna jak wampir chowający się przed słońcem. Alkohol był mocniejszy niż wyglądał - jego oczy zaszklily się, a z gardła wydobył się stłumiony kaszel.
+Marek wykonał manewr, który wyglądał jak skomplikowana pozycja z jogi dla zaawansowanych, połączona z techniką trzymania instrumentów muzycznych, z domieszką choreografii baletowej. Ale jakoś się udało - kieliszek pozostał w poziomie, nie rozlał się, a pan Kim nalał mu soju z uśmiechem aprobaty, pierwszym prawdziwym uśmiechem tego wieczoru.
 
-"Dobrze!" - pan Kim klasnął w dłonie z entuzjazmem. "Bardzo dobrze! Już jesteś prawdziwy Koreańczyk!"
+"Dobrze!" - stwierdził pan Kim. "Pierwszy punkt dla polskiego ucznia!"
 
-Był to moment, w którym Marek zrozumiał, że wpadł w pułapkę.
+"Teraz musisz wypić" - szepnęłam Markowi jak szpieg przekazujący tajne instrukcje.
 
-**FAZA TRZECIA: JEDZENIOWY MARATON**
+"Mogę skosztować? Sprawdzić jakość?"
 
-Trzecia lekcja: hoesik to maraton, nie sprint.
+"Na raz. Całą zawartość kieliszka. Jednym haustem. I odwróć się od starszych, żeby nie widzieli jak pijesz."
 
-Po pierwszej rundzie soju ajumma zaczęła przynosić jedzenie - i to nie było jedzenie, to był pokaz siły. Galbi (żeberka wołowe) syczące na małych grillach wbudowanych w stół, kimchi w trzech różnych wersjach (od łagodnego dla słabszych do takiego, co wypala dziury w języku), banchan - małe przekąski, których było więcej niż na polskim weselu: marynowane rzodkiewki, fermentowane sałatki, dziwne grzybki, które wyglądały jak UFO, ale smakowały lepiej niż wyglądały.
+"Dlaczego mam się odwrócić? To jakiś koreański wampiryzm?"
 
-Wszyscy jedli początkowo grzecznie, pałeczkami, ostrożnie, rozmawiając o pogodzie i ostatnich projektach jakby byli na spotkaniu Rotary Club. Marek próbował obsłużyć pałeczki jak widelec - bez sukcesu, więc w końcu poprosił o zwykłe sztućce, co wywołało litościwy uśmiech ajumma.
+"Bo to niegrzeczne pić alkohol patrząc starszym w oczy. Musisz udawać, że jesteś zbyt skromny, żeby pić w ich obecności, chociaż wszyscy wiedzą, że pijesz, i wszyscy chcą, żebyś pił, ale form must be maintained."
 
-"To jest całkiem w porządku" - powiedział mi cicho po pierwszym kawałku galbi. "Normalnie, miło. Myślałem, że będzie gorzej."
+"To brzmi jak teatr absurdu."
 
-Biedny, słodki, naiwny Marek. Nie wiedział, że właśnie skończył się etap pierwszy: "Poznajemy się przy jedzeniu". Zaraz miał się zacząć etap drugi: "Poznajemy się przy alkoholu".
+"To nie brzmi jak teatr absurdu. To JEST teatr absurdu. Ale wszyscy w nim grają, więc ty też musisz grać."
 
-Po godzinie i drugiej butelce soju pan Kim wstał chwiejnie i podniósł toast z powagą generała przed bitwą:
+Marek wypił soju jednym haustem, odwracając się w stronę okna jak wampir chowający się przed słońcem, albo jak aktor szekspirowskiego dramatu żegnający się z życiem przy użyciu kielicha z trucizną. Alkohol był zdecydowanie mocniejszy niż wyglądał - jego oczy zaszklily się momentalnie, a z gardła wydobył się stłumiony kaszel, który brzmiał jak próba pohamowania reakcji organizmu na kontrolowaną truciznę.
 
-"Za udany kwartał! Za zespół! Za przyszłość firmy Samsung Electronics Polska!"
+"Dobrze!" - pan Kim klasnął w dłonie z entuzjazmem człowieka oglądającego udany numer cyrkowca. "Bardzo dobrze! Już jesteś prawdziwy Koreańczyk! Masz koreańską duszę w polskim ciele!"
 
-Wszyscy wstali, wznieśli kieliszki, wypili na raz. Potem, jak w choreografii, którą wszyscy znali oprócz Marka, pani Park podniosła toast "Za współpracę między działami!". Potem pan Lee "Za zdrowie naszych rodzin!". Potem wszyscy po kolei, zgodnie z hierarchią, każdy musiał powiedzieć coś mądrego i wzruszającego.
+Był to moment, w którym Marek zrozumiał, że wpadł w pułapkę, z której nie ma ucieczi, chyba że przez okno restauracji na drugim piętrze, co nie wydawało się realną opcją. Poza tym pan Kim już nalewał mu kolejny kieliszek, a pani Park uśmiechała się do niego z aprobatą, jakby właśnie przeszedł pomyślnie test na członka tajnego stowarzyszenia.
 
-Po ósmym toaście Marek wyglądał jak ktoś, kto właśnie odkrył, że zamiast na spokojny spacer w parku, poszedł na maraton w górach podczas burzy śnieżnej.
+**FAZA CZWARTA: JEDZENIOWA INWAZJA CZYLI PIERWSZA WOJNA GALAKTYCZNA**
 
-"Ile... ile ich jeszcze będzie?" - zapytał, jego głos był już lekko niewyraźny.
+Czwarta lekcja, którą Marek miał się nauczyć w sposób bardziej traumatyczny, niż przewidywałam: hoesik to maraton, nie sprint. To nie jest kolacja, to jest ekspedycja polarna, której cel może się zmieniać w trakcie wędrówki, ale której nie można przerwać do momentu, gdy wszyscy uczestnicy zostaną uznani za oficjalnie niezdolnych do dalszej podróży.
 
-"Dopiero się rozgrzewamy" - odpowiedziałam, patrząc jak ajumma przynosi kolejne pięć butelek. "To pierwszy z trzech kroków hoesik. Teraz będzie drugi krok: "Poznajemy swoje prawdziwe ja"."
+Po pierwszej rundzie soju (która była tylko rozgrzewką, czymś w rodzaju check-in przed prawdziwą imprezą), ajumma zaczęła przynosić jedzenie. I to nie było jedzenie w rozumieniu europejskim - danie główne plus dodatki. To był pokaz siły kulinarnej, demonstracja koreańskiej filozofii żywienia, według której każdy posiłek powinien zawierać reprezentację wszystkich możliwych smaków, tekstur, temperatur i stanów skupienia znanej ludzkości.
 
-"A trzeci?"
+Galbi - żeberka wołowe marynowane w sosie, który zawierał więcej składników niż przeciętny podręcznik chemii - przyszły syczące na małych grillach wbudowanych w stół. To było jak przeniesienie działki z Podlasia bezpośrednio na blat restauracyjny, tylko w wersji high-tech i z lepszym zapachem.
 
-"Trzeci to "Wszyscy płaczemy i wyznajemy miłość"."
+Kimchi pojawiło się w trzech różnych wersjach, jak trio tenorów w operze: wersja łagodna dla słabszych dusz (która i tak była ostrzejsza niż najbardziej piekielna polska musztarda), wersja średnia dla tych, którzy chcą poczuć dreszcz emocji ale nie stracić całkowicie zmysłu smaku, i wersja hardcore, która wypalała dziury nie tylko w języku, ale prawdopodobnie też w czasie i przestrzeni.
 
-Marek pobladł bardziej niż soju.
+Banchan - małe przekąski - który to termin jest koreańskim odpowiednikiem polskiego słowa "trochę", ale oznaczającym "więcej niż na polskim weselu dla stu pięćdziesięciu osób". Marynowane rzodkiewki wyglądające jak małe różowe planety, fermentowane sałatki w kolorach, które nie istnieją w naturze, dziwne grzybki przypominające kosmicznych kolonistów z innych galaktyk, ale smakujące lepiej niż większość rzeczy, które jadł Marek w swoim dotychczasowym życiu.
 
-**FAZA CZWARTA: KARAOKE APOKALIPSA**
+Były też jakieś rzeczy, które wyglądały jak przeniesione z laboratorium biologicznego: namul (kiełki fasoli marynowane w tajemniczym sosie), oi sobagi (małe ogórki nadziewane kimchi, co brzmi jak rosyjska ruletka w wersji warzywnej), myeolchi bokkeum (anchois smażone z orzeszkami, które wyglądały jak morski snack bar), i inne specjalności, których nazwy brzmiały jak zaklęcia z Harry'ego Pottera w wersji azjatyckiej.
 
-Czwarta lekcja: w hoesik każdy musi zaśpiewać.
+Wszyscy jedli początkowo grzecznie, pałeczkami, ostrożnie, prowadząc rozmowy o pogodzie i ostatnich projektach jakby byli na spotkaniu Rotary Club lub stowarzyszenia miłośników filozofii konfucjańskiej. Marek próbował obsłużyć pałeczki jak widelec - trzymając je w pięści jak miecze, próbując przebić poszczególne kawałki jedzenia jak na średniowiecznym turniejie.
 
-Po drugiej godzinie, trzeciej butelce soju i dwudziestym siódmym toaście (przestałam liczyć po dwudziestym), atmosfera zaczęła się zmieniać jak temperatura w parze. Pan Kim, który w biurze był poważny jak sędzia Trybunału Konstytucyjnego, teraz opowiadał żarty o swojej żonie, która ukrywa przed nim ile kosztują jej torebki. Pani Park, która nigdy nie uśmiechała się do podwładnych, chichotała jak nastolatka na pierwszej randce.
+Po pięciu minutach bezsensownej walki z kawałkiem galbi, który uciekał mu po talerzu jak żywe zwierzę, w końcu poprosił o zwykłe sztućce. Ajumma przyniosła mu łyżkę i widelec z uśmiechem miłosierdzia, jakim matka patrzy na dziecko, które dopiero uczy się chodzić.
 
-W powietrzu unosił się dym z grilla, zapach soju i ten szczególny aromat hoesik - mieszanka alkoholu, emocji i zbliżającej się katastrofy.
+"To jest całkiem w porządku" - powiedział mi szeptem po pierwszym kawałku galbi, który w końcu udało mu się skolonizować przy użyciu europejskiej technologii. "Normalnie, miło, cywilizowanie. Myślałem, że będzie bardziej... egzotycznie i nieprzystępnie."
 
-I wtedy stało się to, co zawsze się dzieje na hoesik około godziny dziesiątej - ktoś wpadł na "genialny" pomysł.
+Biedny, słodki, naivny Marek. Nie wiedział, że właśnie skończył się etap pierwszy hoesik: "Poznajemy się przy jedzeniu i udajemy, że to normalna kolacja służbowa". Zaraz miał się zacząć etap drugi: "Poznajemy się przy alkoholu i przestajemy udawać".
 
-"Karaoke!" - krzyknął pan Lee, wymachując pałeczkami jak batuty. "Wszyscy muszą zaśpiewać!"
+Po godzinie i drugiej butelce soju (plus jedna dodatkowa, bo pan Kim stwierdził, że "na taką pogodę trzeba się wzmocnić"), coś zaczęło się zmieniać w atmosferze. Pan Kim wstał chwiejnie - nie dlatego, że był pijany, ale dlatego, że soju ma tę właściwość, że sprawia, że każdy ruch wymaga świadomej koncentracji - i podniósł toast z powagą generała przed decydującą bitwą:
 
-Ajumma przyniosła mikrofonowy system, który wyglądał jakby pochodził z lat 90., ale działał perfekcyjnie. Koreańczycy traktują karaoke poważnie - to nie jest zabawa, to jest rytuał.
+"Za udany kwartał!" - jego głos brzmiał jak proklamacja niepodległości. "Za zespół, który jest jak rodzina! Za przyszłość firmy Samsung Electronics Polska, która będzie świetlana dzięki naszej współpracy i wzajemnemu zrozumieniu!"
 
-"Nie, nie, nie" - zaczął protestować Marek, rękoma przykrywając twarz jak wampir przed światłem słonecznym. "Ja nie śpiewam. Nigdy. W życiu."
+Wszyscy wstali jak na komendę (Marek z lekkim opóźnieniem, bo nie był przygotowany na militarną synchronizację), wznieśli kieliszki w geście, który wyglądał jak ceremonia religijną, i wypili na raz.
 
-"Wszyscy śpiewają" - wyjaśniłam spokojnie. "To nie jest prośba, to obowiązek. Jak podatki albo śmierć."
+Następnie, jak w choreografii przygotowanej przez koreańskiego Andrew Lloyd Webbera, pani Park podniosła swój kieliszek: "Za współpracę między działami! Za to, że mimo różnic w charakterze i metodach pracy, zawsze znajdujemy sposób na wspólne rozwiązania!"
 
-"Ale ja nie znam koreańskich piosenek! Nie znam K-popu! Nie słyszałem BTS!"
+Potem pan Lee ze swoim toastem: "Za zdrowie naszych rodzin! Za to, żeby nasze dzieci były dumne z tego, co robimy!"
 
-"Możesz zaśpiewać polską piosenkę. Cokolwiek."
+Potem wszyscy po kolei, zgodnie z hierarchią społeczno-biznesową, każdy musiał powiedzieć coś mądrego, wzruszającego, i społecznie konstrukcyjnego. To było jak perpetuum mobile toastów, gdzie każdy kolejny musiał być bardziej emocjonalny i bardziej uniwersalny od poprzedniego.
 
-Pan Kim, już na tyle wstawiony, że jego krawat wisiał jak flaga poddania, podszedł do naszego końca stołu z mikrofonem w ręku jak wojownik z mieczem.
+Po ósmym toaście (a może dziesiątym, bo przestałam liczyć po tym, jak ktoś wzniósł toast "za przyjaźń polsko-koreańską, która jest jak most nad oceanem kulturowych różnic") Marek wyglądał jak ktoś, kto właśnie odkrył, że zamiast iść na spokojny spacer w parku, zapisał się przez przypadek na maraton w Himalajach podczas burzy śnieżnej i trzęsienia ziemi.
 
-"Marek!" - zawołał uroczystym głosem. "Teraz ty! Śpiewaj!"
+"Ile... ile ich jeszcze będzie?" - zapytał mnie dyskretnie, jego głos był już lekko niewyraźny, jakby mówił przez wodu.
 
-"Ale ja naprawdę nie umiem śpiewać..." - protestował Marek słabszym i słabszym głosem.
+"Dopiero się rozgrzewamy" - odpowiedziałam, patrząc jak ajumma przynosi kolejne pięć butelek soju plus dwie butelki jakiegoś tajemniczego alkoholu, który wyglądał jak medyczny spirytus, ale pachniał jak mieszanka perfum i benzyny. "To pierwszy z trzech aktów hoesik. Akt pierwszy: 'Poznajemy się przy jedzeniu'. Teraz zaczyna się akt drugi: 'Poznajemy swoje prawdziwe ja pod wpływem alkoholu koreańskiego'."
 
-"Wszyscy umieją śpiewać!" - stwierdził pan Kim z mądrością człowieka, który wypił już pół litra alkoholu ryżowego. "W soju każdy jest artystą! W hoesik każdy jest gwiazdą!"
+"A akt trzeci?"
 
-Cały stół zaczął skandować: "Ma-rek! Ma-rek! Ma-rek!" jak kibice na stadionie. Nie było ucieczki.
+"Akt trzeci to 'Wszyscy płaczemy, wyznajemy miłość do ludzkości, i śpiewamy karaoke do momentu, gdy ajumma nas wyrzuci albo my sami stracimy świadomość - co nastąpi wcześniej'."
 
-I wtedy Marek popełnił błąd, który na zawsze ugruntował jego pozycję w firmie, a możliwie i w historii polsko-koreańskich relacji dyplomatycznych. Zamiast wybrać bezpieczną, wszystkim znaną piosenkę jak "Happy Birthday" albo "We Are The Champions", a może coś od Beatlesów, zdecydował się na coś, co wydawało mu się "autentycznie polskie".
+Marek pobladł bardziej niż soju i wyglądał jak ktoś, kto właśnie zrozumiał, że w sztuce, w której gra, jego rola to nie cameo, ale główna postać w dramacie, którego koniec nie jest jeszcze napisany.
 
-"Małgośkę" Budki Suflera.
+**FAZA PIĄTA: KARAOKE APOKALIPSA CZYLI NARODZINY LEGENDY**
 
-"Hej Małgośka, daj buziaka, a nie bądź taka dzika..." - zaczął głosem przypominającym mieszankę Pawła Kukiza z pijanym niedźwiedziem, ale z alkoholowym entuzjazmem, który kompensował totalne braki warsztatowe.
+Piąta lekcja hoesik, która powinna być wypisana w podręcznikach antropologii kulturowej: w hoesik każdy musi zaśpiewać. To nie jest sugestia, nie jest to opcjonalne activity, nie jest to element programu, który można pominąć. To jest prawo natury, przykazanie społeczne, i nieunikniony punkt zwrotny każdego wieczoru, który ma szansę przejść do firmowej legendy.
 
-Koreańczycy słuchali z fascynacją jak antropolodzy obserwujący nowo odkryty rytuał plemienia. Nie rozumieli ani słowa, ale rytm był chwytliwy, a Marek śpiewał z taką pasją, jakby to była aria z "Tosci" albo hymn narodowy.
+Po drugiej godzinie intensywnych toastów, czwartej butelce soju (plus dwie butelki tajemniczego koreańskiego alkoholu o nazwie, której nie potrafię wymówić, ale który smakował jak mieszanka nalewki babuni z paliwem rakietowym), i trzudziestym siódmym toaście (przestałam liczyć po tym, jak ktoś wzniósł toast "za wszystkie matki na świecie, które wychowały nas na dobrych ludzi"), atmosfera zaczęła się zmieniać jak temperatura w parze sadystycznym.
 
-Po pierwszej zwrotce pan Kim, z kieliszkiem soju w jednej ręce i kawałkiem galbi w drugiej, zaczął nucić melodię. Po drugiej - cały stół kiwał się w rytm. Po trzeciej - wszyscy śpiewali "Hej Małgośka!" jak mantry buddyjskie, nie mając pojęcia co oznacza "buziaka", ale czując głęboko, że to coś ważnego.
+Pan Kim, który w biurze był poważny jak sędzia Trybunału Konstytucyjnego podczas przesłuchania świadka koronnego, teraz opowiadał żarty o swojej żonie, która ukrywa przed nim ile kosztują jej torebki, i o tym, jak ona myśli, że on nie wie, ale on wie, ale udaje, że nie wie, bo kocha ją za tę niewinną oszukańczość.
 
-Ajumma przyniosła jeszcze jedną butelkę soju, klaszcząc w rytm. "Małgośka" stała się hitem wieczoru, mostem kulturowym między Wisłą a Hanem, i dowodem na to, że niektóre melodie są uniwersalne jak algebra czy wódka.
+Pani Park, która w biurze nigdy nie uśmiechała się do podwładnych i mówiła wyłącznie rzeczami w trybie rozkazującym, teraz chichotała jak nastolatka na pierwszej randce, opowiadając historie o swoim kocie, który ma więcej charakteru niż większość ludzi, których zna.
 
-Pan Kim był tak wzruszony, że łzy spływały mu po policzkach jak durante tango argentyńskim.
+W powietrzu unosił się dym z grilla, zapach soju mieszający się z fermentowanymi warzywami, i ten szczególny aromat hoesik - mieszanka alkoholu, emocji, zbliżającej się katastrofy, i dziwnej, międzyludzkiej bliskości, która powstaje, gdy grupa nieznajomych ludzi nagle staje się rodziną na jedną noc.
 
-"To jest... to jest piękne!" - wykrzyknął po polsku z koreańskim akcentem. "Małgośka to jest... miłość!"
+I wtedy stało się to, co zawsze się dzieje na hoesik około godziny dziewiątej trzydzieści (może dziesiątej, czas w hoesik płynie jak miód z dodatkiem alkoholu) - ktoś wpadł na "genialny" pomysł, który wszyscy inni uznali za najlepszą ideę w historii ludzkości.
 
-**FAZA PIĄTA: EMOCJONALNA REWOLUCJA**
+"Karaoke!" - krzyknął pan Lee, wymachując pałeczkami jak dirigent orkiestry symfonicznej tuż przed finałem Dziewiątej Symfonii Beethovena. "Wszyscy muszą zaśpiewać! To obowiązkowe!"
 
-Piąta lekcja: w hoesik przełożeni przestają być przełożonymi - i to nie jest metafora.
+Ajumma przyniosła mikrofonowy system, który wyglądał jakby pochodził z lat dziewięćdziesiątych i przeżył już więcej hoesik niż historycy potrafią policzyć, ale działał z perfekcją szwajcarskiego zegarka. Koreańczycy traktują karaoke poważnie - to nie jest zabawa ani rozrywka. To jest rytuał społeczny, forma sztuki, i jednocześnie test personalny, który ujawnia prawdziwy charakter człowieka.
 
-O północy - a może była pierwsza, bo czas w hoesik płynie jak roztopiony soju - atmosfera była już całkowicie inna niż w firmowym biurze. To było jak obserwowanie metamorfozy: z formal business meeting to emotional group therapy.
+"Nie, nie, absolutnie nie" - zaczął protestować Marek, rękoma przykrywając twarz jak wampir, który właśnie usłyszał, że za chwilę wstanie słońce. "Ja nie śpiewam. Nigdy w życiu. W żadnych okolicznościach. To jest przeciwko moim zasadom religijnym."
 
-Pan Kim, który w biurze zwracał się do wszystkich per "pan" lub "pani" z formalną powagą ambasadora i nie uśmiechał się nawet do sekretarki, teraz klepał Marka po plecach jak stary kolega ze studiów i nazywał go "polskim bratem z wielkiego serca".
+"Jakim zasadom religijnym?" - zapytałam.
 
-"Marek, bracie!" - mówił, ująwszy go za ramiona i patrząc mu głęboko w oczy jak guru przekazujący życiową mądrość albo ojciec, który w końcu może być sobą. "Ty dobry człowiek. Bardzo, bardzo dobry człowiek. Serce masz czyste jak... jak... spring water z gór Taebaek!"
+"Zasada numer jeden: nie śpiewać publicznie. Zasada numer dwa: jeśli ktoś zmusza cię do śpiewania, to uciekaj. Zasada numer trzy: karaoke to spisek przeciwko ludzkiej godności."
 
-"Jak soju?" - zaproponował Marek, bo to było jedyne koreańskie porównanie, które przyszło mu do głowy.
+"Wszyscy śpiewają" - wyjaśniłam spokojnie, z niewzruszoną determinacją przewodniczki wyprawy, która właśnie oznajmiła, że następny etap wędrówki prowadzi przez niebezpieczny przesmyk, ale innej drogi nie ma. "To nie jest prośba, to nie jest sugestia, to nie jest opcja do wyboru. To obowiązek społeczny. Jak płacenie podatków, jak oddychanie, jak śmierć."
 
-"TAK! Jak soju! Przejrzyste, ale mocne! I ciepłe w środku!" - pan Kim był tak wzruszony własną metaforą, że łzy spływały mu po policzkach.
+"Ale ja nie znam koreańskich piosenek!" - protestował desperacko. "Nie znam K-popu! Nie słyszałem BTS! Nie potrafię wymawiać koreańskich słów! Będę brzmiał jak turysta próbujący zamówić jedzenie w Seulu!"
 
-"Pan Kim też bardzo dobry człowiek" - odpowiadał Marek z powagą człowieka składającego uroczystą przysięgę przed ołtarzem. "I bardzo dobry szef. Jadzia zawsze mówi."
+"Możesz zaśpiewać polską piosenkę" - wyjaśniłam. "Cokolwiek. Hymn narodowy, kolędę, piosenkę z dzieciństwa. Cokolwiek, co znasz na pamięć."
 
-"Nie pan Kim!" - pan Kim potrząsnął głową jak nauczyciel poprawiający ucznia, ale życzliwie, ciepło. "Tylko Kim! Dzisiaj wszyscy bracia! Nie dyrektor, nie podwładny! Tylko ludzie z problemami i marzeniami!"
+Pan Kim, już na tyle pogrążony w alkoholowej ekstaza, że jego krawat wisiał jak flaga poddania, a marynarka była rozpięta jak u rockingowego muzyka po koncercie, podszedł do naszego końca stołu z mikrofonem w ręku jak starożytny wojownik z mieczem, ale z uśmiechem jak dziadek, który właśnie ma opowiedzieć wnukom najlepszą historię ze swojego życia.
 
-Pani Park, która po dziewiątej butelce soju okazało się mieć poczucie humoru jak stand-up comedian i więcej plotek niż redakcja "Faktu", opowiadała Markowi wszystkie biurowe sekrety z entuzjazmem reportera śledczego na tropie afery stulecia.
+"Marek!" - zawołał uroczystym głosem, który brzmiał jak połączenie ogłoszenia prezydenta z zaproszeniem na urodziny. "Teraz ty! Śpiewaj! Pokaż nam polską duszę!"
 
-"Wiesz" - mówiła konspiracyjnym szeptem, ale takim teatralnym, który słyszał cały stół i połowa sąsiednich stolików - "pan Lee z IT to wcale nie jest taki poważny i komputerowy jak wygląda. W zeszłym tygodniu przyszłam wcześniej do biura - o siódmej rano! - i znalazłam go, jak gra na komputerze służbowym!"
+"Ale ja naprawdę, naprawdę nie umiem śpiewać..." - protestował Marek coraz słabszym i słabszym głosem, jak żołnierz, który właśnie zrozumiał, że bitwa jest przegrana, ale wciąż próbuje negocjować warunki kapitulacji.
 
-"Nie!" - Marek udawał zszokowanie z takim przejęciem, jakby właśnie usłyszał o wielkim skandalu korupcyjnym w rządzie. "W co grał? Counter-Strike? Może World of Warcraft? Civilization?"
+"Wszyscy umieją śpiewać!" - stwierdził pan Kim z filozoficzną mądrością człowieka, który wypił już pół litra alkoholu ryżowego i odkrył fundamentalne prawdy o naturze ludzkiej. "W soju każdy jest artystą! W hoesik każdy jest gwiazdą! Muzyka to język duszy, a dusze nie potrzebują tłumaczy!"
 
-"Gorzej!" - pani Park pochyliła się jeszcze bliżej, jej głos drżał od emocji. "W Solitaire! I to nie zwykłego! W Spider Solitaire na najwyższym poziomie trudności! I miał już otwarte pięć gier jednocześnie!"
+Cały stół zaczął skandować: "Ma-rek! Ma-rek! Ma-rek!" jak kibice na stadionie podczas decydującego meczu, jak tłum na placu wzywający bohatera, jak chorus w greckiej tragedii zachęcający protagonistę do podjęcia losu. Nie było ucieczki, nie było alternatywy, nie było możliwości dyplomatycznego wycofania się.
 
-Marek otworzył usta w udawanym szoku.
+I wtedy Marek popełnił błąd, który na zawsze ugruntował jego pozycję w firmie Samsung Electronics Polska, a możliwie i w historii polsko-koreańskich relacji dyplomatycznych i kulturowych. Zamiast wybrać bezpieczną, międzynarndowo znaną piosenkę jak "Happy Birthday", "We Are The Champions", coś od Beatlesów, albo w najgorszym przypadku "My Heart Will Go On" z Titanica, zdecydował się na coś, co wydawało mu się "autentycznie polskie", "reprezentatywne dla mojej kultury", i "łatwym do zaśpiewania nawet pod wpływem soju".
 
-"A co powiedział jak go przyłapałaś?"
+Wybrał "Małgośkę" Budki Suflera.
 
-"Powiedział, że testuje... że testuje wydajność komputera!" - pani Park prawie płakała ze śmiechu. "Wydajność! Przez granie w pasjansa!"
+"Hej Małgośka, daj buziaka, a nie bądź taka dzika..." - zaczął głosem, który przypominał mieszankę Pawła Kukiza z pijanym niedźwiedziem, który próbuje zaśpiewać operę, ale z alkoholowym entuzjazmem i emocjonalnym zaangażowaniem, które kompensowały totalne braki warsztatowe i katastrofalne nieprzygotowanie techniczne.
 
-Oboje wybuchnęli śmiechem jak dzieci, które właśnie odkryły, że dyrektor szkoły nosi kolorowe skarpetki i słucha K-popu. Pan Lee, słysząc swoje imię i rozpoznając melodię swojego kompromitującego sekretu, podniósł kieliszek soju z godnością człowieka, który nie ma już nic do ukrycia:
+Koreańczycy słuchali z fascynacją jak antropolodzy obserwujący nowo odkryty rytuał plemienia, które właśnie wykonuje sacred dance przekazujący najważniejsze mity swojej kultury. Nie rozumieli ani jednego słowa, ale rytm był chwytliwy, melodia była uniwersalna, a Marek śpiewał z taką pasją, jakby to była aria z "Tosci" wystawianej w La Scali, albo hymn narodowy śpiewany podczas ceremonia niepodległości.
 
-"Za Solitaire!" - krzyknął z dumą. "Najlepsza gra do rozwoju strategicznego myślenia i koncentracji!"
+Po pierwszej zwrotce pan Kim, z kieliszkiem soju w jednej ręce i kawałkiem galbi w drugiej, zaczął nucić melodię jak ktoś, kto właśnie odkrył, że zna tę piosenkę od zawsze, chociaż słyszy ją po raz pierwszy w życiu. Po drugiej zwrotce - cały stół kiwał się w rytm jak jeden organizm, jak kościelny chór, jak zespół muzyczny, który grał razem od lat.
 
-"I do ukrywania się przed raportami miesięcznymi!" - dodała pani Park, a cały stół ryłał ze śmiechu tak mocno, że ajumma przyniosła jeszcze jedną butelkę soju "za szczerość w zespole".
+Po trzeciej zwrotce - wszyscy śpiewali "Hej Małgośka!" jak mantry buddyjskie, jak zaklęcia, jak hymn religijny, nie mając pojęcia co oznacza "buziaka" (pocałunek), "dzika" (niegrzeczna), ale czując głęboko, intuicyjnie, w sposób, który przekracza bariery językowe, że to coś bardzo ważnego, bardzo fundamentalnego, bardzo prawdziwego.
 
-**FAZA SZÓSTA: POŻEGNALNE RYTUAŁY**
+Ajumma przyniosła jeszcze jedną butelkę soju i zaczęła klaskać w rytm jak na koncercie rockowym. "Małgośka" stała się hitem wieczoru, mostem kulturowym między Wisłą a rzeką Han, dowodem na to, że niektóre melodie są uniwersalne jak algebra, jak wódka, jak miłość, jak potrzeba śpiewania razem z innymi ludźmi po wypicu odpowiedniej ilości alkoholu.
 
-Szósta lekcja: hoesik kończy się, gdy wszyscy są zbyt wzruszeni lub zbyt pijani, żeby kontynuować - cokolwiek nastąpi wcześniej.
+Pan Kim był tak wzruszony, że łzy spływały mu po policzkach jak rzeka podczas wiosennej powodzi, jak łzy szczęścia na ślubie, jak deszcz szczęścia.
 
-O drugiej w nocy (a może trzeciej, ale w hoesik zegarki są tylko ozdobą) ajumma podeszła do naszego stołu z miną matki koreańskiej, która widzi, że dzieci za długo się bawią i jutro będą miały kłopoty w szkole.
+"To jest..." - wykrzyknął po polsku z koreańskim akcentem, szukając słów, które mogłyby wyrazić to, co czuje. "To jest... piękne! Małgośka to jest... miłość! To jest... poezja! To jest... wszystko, co najlepsze w życiu!"
 
-"Yeorobun" - powiedziała spokojnie - "Zamykamy za pół godziny".
+I w tym momencie wszyscy zrozumieliśmy, że właśnie zostaliśmy świadkami narodzin legendy.
 
-Ale jej uśmiech oznaczał coś zupełnie innego: "Zamykamy TERAZ, bo mam córkę na studiach i muszę wstać o piątej, żeby przygotować kimchi na targ".
+**FAZA SZÓSTA: EMOCJONALNA REWOLUCJA CZYLI OBALENIE SYSTEMU**
 
-Pan Kim, który przez ostatnią godzinę próbował nauczyć Marka podstaw koreańskiego ("Saranghae to znaczy kocham! Gamsahabnida to dziękuję! Aish to znaczy... no, lepiej nie mów tego przy mojej żonie!"), wstał chwiejnie, podtrzymując się krzesła jak admirał na statku podczas sztormu.
+Szósta lekcja hoesik, która powinna być pakowana w podręcznikach psychologii społecznej: w hoesik przełożeni przestają być przełożonymi, a to nie jest metafora, symbol czy poetycka hiperbola. To jest dosłowny opis procesu, w którym alkohol ryżowy i karaoke działają jak rozpuszczalnik hierarchii społecznych, pozostawiając tylko pierwiastki ludzkiej natury w ich najczystszej, najbardziej nieocenzurowanej formie.
 
-"Koniec!" - ogłosił uroczyście, podnosząc ostatni kieliszek soju jak trofeum mistrzostw świata. "Był dobry wieczór! Był BARDZO dobry wieczór! Marek jest teraz oficjalnym koreańskim bratem Samsung Electronics Polska!"
+O północy - a może była pierwsza trzydzieści, a może druga, bo czas w hoesik płynie jak roztopiony soju przez sito zrobione z marzeń sennych - atmosfera była już całkowicie oderwana od rzeczywistości biurowej. To było jak obserwowanie metamorfozy z formal business meeting w emotional group therapy z dodatkiem karaoke i alkoholu o właściwościach prawdomówczych.
 
-"Na zawsze!" - krzyknął cały stół, podnosząc swoje kieliszki w ostatnim, uroczystym toaście.
+Pan Kim, który w biurze zwracał się do wszystkich per "pan" lub "pani" z formalną powagą ambasadora podczas kryzysu dyplomatycznego i nie uśmiechał się nawet do sekretarki, chyba że chodziło o oficjalne okazje, teraz klepał Marka po plecach jak stary kolega ze studiów, którego widzi po dwudziestu latach i nazywał go "polskim bratem z wielkiego, czystego serca, który rozumie prawdziwą wartość przyjaźni".
 
-"Za przyjaźń polsko-koreańską!" - dodała pani Park.
+"Marek, bracie!" - mówił, ująwszy go za ramiona i patrząc mu głęboko w oczy jak guru przekazujący najważniejszą życiową mądrość, albo jak ojciec, który w końcu może być sobą bez gry w szefa i odłożyć maskę profesjonalnej powagi. "Ty bardzo, bardzo dobry człowiek. Serce masz czyste jak... jak... góralski strumień spływający z gór Taebaek na wiosnę!"
 
-"Za Małgośkę!" - krzyknął pan Lee.
+"Jak soju?" - zaproponował Marek, bo to było jedyne koreańskie porównanie, które przyszło mu do głowy po czterech godzinach intensywnej edukacji kulturowej.
 
-"Za soju!" - dorzucił ktoś z końca stołu.
+"TAK! Dokładnie! Jak najlepszy soju!" - pan Kim był tak wzruszony właścicielską metaforą, że łzy szczęścia spływały mu po policzkach jak deszcz wiosenny. "Przejrzyste, ale mocne! I ciepłe w środku! I daje innym ludziom radość!"
 
-Wszyscy zaczęli się zbierać, co przy ich stanie trzeźwości przypominało ewakuację z tonącego Titanica, ale w dobrych nastrojach. Marek, który przez ostatnie pięć godzin wypił więcej alkoholu niż przez ostatnie pięć miesięcy, ledwo trzymał się na nogach, ale dzielnie próbował pomóc zapakować pozostałości jedzenia do plastikowych pojemników, które ajumma rozdawała jak skarby.
+"Pan Kim też bardzo, bardzo dobry człowiek" - odpowiadał Marek z powagą człowieka składającego uroczystą przysięgę przed ołtarzem lub składającego zeznania przed sądem w sprawie najważniejszej w swoim życiu. "I bardzo dobry szef. Jadzia zawsze mówi, że ma szczęście pracować dla takiego człowieka."
 
-"Teraz co się dzieje?" - zapytał mnie głosem, który brzmiał jak echo z bardzo głębokiej, bardzo mokrej studni.
+"Nie pan Kim!" - pan Kim potrząsnął głową z energią nauczyciela poprawiającego ucznia, ale życzliwie, ciepło, jak ktoś, kto właśnie odkrył, że formalności są niepotrzebną barierą między ludźmi. "Dzisiaj tylko Kim! W hoesik wszyscy są braćmi! Nie ma dyrektora, nie ma podwładnego, nie ma hierarchii! Tylko ludzie z problemami, marzeniami, i potrzebą wzajemnego zrozumienia!"
 
-"Teraz wszyscy udają, że nic się nie stało" - wyjaśniałam, pomagając mu włożyć kurtkę i sprawdzając, czy ma portfel.
+To była chwila, w której Marek po raz pierwszy w życiu zobaczył, jak wygląda prawdziwy Kim - nie dyrektor, nie szef, nie przedstawiciel korporacji, ale człowiek, który ma córkę na uniwersytecie, żonę, która kupuje za drogie torebki, mortgage na mieszkanie, i który czasem też czuje się zagubiony w swoim życiu.
 
-"Jak to nic się nie stało?!" - Marek patrzył na mnie z niedowierzaniem kogoś, kto właśnie usłyszał, że wczorajsza bitwa pod Grunwaldem to był tylko sen. "Przez pięć godzin byliśmy jak jedna wielka rodzina! Pan Kim płakał mi na ramieniu opowiadając o swojej córce! Pani Park pokazała mi zdjęcia swojego kota - wszystkie, od kiedy był kociakiem! Pan Lee nauczył mnie tańczyć gangnam style!"
+Pani Park, która po dziewiątej butelce soju (plus te tajemnicze dodatki alkoholowe, których nazw nie potrafiłam zapamiętać) okazało się mieć poczucie humoru jak profesjonalny stand-up comedian i więcej plotek biurowych niż cała redakcja "Faktu" i "Super Expressu" razem wzięte, opowiadała Markowi wszystkie sekrety firmowe z entuzjazmem reportera śledczego, który właśnie wpadł na trop afery stulecia.
 
-"Jutro w biurze wszyscy będą znowu oficjalni" - wyjaśniałam cierpliwie, jak nauczycielka tłumacząca dziecku, dlaczego nie można nosić kostiumu Batmana do szkoły. "Pan Kim będzie znowu panem Kim z trzeciego piętra, który mówi tylko 'dzień dobry' i 'proszę przygotować raport'. Pani Park będzie znowu panią Park z marketingu, która nie uśmiecha się do nikogo przed dziesiątą rano. Hoesik to jest jak... jak równoległy wszechświat. Istnieje tylko wieczorami, w restauracjach, po soju."
+"Wiesz co?" - mówiła konspiracyjnym szeptem, ale takim teatralnym i głośnym, który słyszał cały nasz stół, połowa sąsiednich stolików, i prawdopodobnie ajumma w kuchni - "pan Lee z IT to wcale nie jest taki poważny i komputerowy jak wygląda w biurze. W zeszłym tygodniu przyszłam wcześniej do pracy - o siódmej rano, bo miałam spotkanie z klientem z Korei - i znalazłam go przy swoim komputerze służbowym!"
 
-"To jak Narnia?" - zapytał Marek, czyniąc porównanie, które było zadziwiająco trafne.
+"Nie!" - Marek udawał zszokowanie z takim dramatycznym przejęciem, jakby właśnie usłyszał o wielkim skandalu korupcyjnym w najwyższych kręgach władzy. "Pracował o siódmej rano? To straszne! W co grał? Counter-Strike? World of Warcraft? Fortnite? Civilization?"
 
-"Dokładnie jak Narnia" - przytaknęłam. "Ale dla dorosłych. Z alkoholem. I z karaoke. I wszyscy pamiętają, ale udają, że nie pamiętają, aż do następnego hoesik."
+"Gorzej!" - pani Park pochyliła się jeszcze bliżej, jej głos drżał od emocji jak u aktora teatralnego w najważniejszej scenie dramatu. "Grał w Solitaire! I to nie w zwykłego Solitaire'a dla początkujących! W Spider Solitaire na najwyższym poziomie trudności! I miał już otwarte pięć różnych gier jednocześnie na trzech różnych monitorach!"
 
-"A kiedy będzie następny?"
+Marek otworzył usta w teatralnie udawanym szoku, jakby właśnie usłyszał, że ziemia jest płaska, a Księżyc to hologram.
 
-"Za miesiąc. Pan Kim już mnie pytał, czy znasz inne polskie piosenki."
+"A co powiedział, gdy go przyłapałaś na gorącym uczynku?"
+
+"Powiedział..." - pani Park robiła dramatyczną pauzę jak aktor przed wypowiedzeniem kluczowej kwestii - "...że testuje wydajność systemu! Że sprawdza, czy komputer nie zwalnia przy wielozadaniowości! Wydajność komputera przez granie w pasjansa!"
+
+Oboje wybuchnęli śmiechem jak dzieci, które właśnie odkryły, że dyrektor szkoły nosi różowe skarpetki z jednorożcami i słucha K-popu w ukryciu. Pan Lee, słysząc swoje imię i rozpoznając melodię swojego największego, najbardziej kompromitującego sekretu zawodowego, podniósł kieliszek soju z godnością człowieka, który postanowił nie mieć już nic do ukrycia przed światem:
+
+"Za Solitaire!" - krzyknął z dumą wojownika idącego na bitwę. "Za najlepszą grę komputerową do rozwoju strategicznego myślenia, koncentracji, i cierpliwości w obliczu przeciwności losu!"
+
+"I za najlepszy sposób na ukrywanie się przed pisaniem raportów miesięcznych!" - dodała pani Park ze śmiechem, a cały stół wybuchnął gromkim śmiechem, który był tak zaraźliwy, że ajumma przyniosła jeszcze jedną butelkę soju "za szczerość w zespole i za odkrywanie prawdy o sobie nawzajem".
+
+W tym momencie zrozumieliśmy wszyscy, że właśnie przekroczyliśmy jakąś niewidzialną linię - z formalnego spotkania biznesowego w prawdziwe ludzkie porozumienie, z udawania profesjonalistów w bycie po prostu ludźmi, którzy lubią się nawzajem i chcą spędzić razem czas.
+
+**FAZA SIÓDMA: POŻEGNALNE RYTUAŁY CZYLI KONIEC MAGII**
+
+Siódma i ostatnia lekcja hoesik, którą powinien znać każdy, kto chce zrozumieć koreańską kulturę pracy: hoesik kończy się, gdy wszyscy są zbyt wzruszeni, zbyt pijani, albo zbyt emocjonalnie wyczerpani, żeby kontynuować - cokolwiek nastąpi wcześniej. Ale koniec hoesik to nie jest zwykłe wyjście z restauracji. To jest powrót z innego wymiaru rzeczywistości.
+
+O drugiej w nocy (a może o trzeciej trzydzieści, a może o czwartej, ale w hoesik zegarki są tylko dekoracyjnym dodatkiem, który przestaje mieć jakiekolwiek znaczenie po trzeciej butelce soju) główna ajumma podeszła do naszego stołu z miną matki koreańskiej, która widzi, że dzieci za długo się bawią i jutro będą miały kłopoty w szkole, ale jest też dumna, że jej dzieci potrafią się dobrze bawić.
+
+"Yeorobun" - powiedziała spokojnie, ale z autorytetem kogoś, kto wie, że jej słowo jest ostateczne - "Zamykamy za pół godziny. Ale możecie zostać jeszcze trochę, jeśli chcecie."
+
+Ale jej uśmiech i sposób, w jaki zaczęła odkładać mikrofony karaoke, oznaczał coś zupełnie innego: "Zamykamy TERAZ, bo mam córkę na studiach, która czeka na mnie w domu, muszę wstać o piątej rano, żeby przygotować kimchi na sobotni targ, a wy wszyscy wyglądacie jak po przewrocie państwowym, więc czas kończyć tę piękną, ale wyczerpującą imprezę".
+
+Pan Kim, który przez ostatnią godzinę próbował nauczyć Marka podstaw koreańskiego ("Saranghae to znaczy kocham - ale nie mów tego do kolegów z pracy! Gamsahabnida to dziękuję - to jest bardzo ważne słowo! Aish to znaczy... no, lepiej nie używaj tego słowa przy mojej żonie, bo dostanę reprymendę!"), wstał chwiejnie, podtrzymując się krzesła jak stary admirał na statku podczas ostatniego sztormu przed powrotem do portu.
+
+"Koniec!" - ogłosił uroczyście, podnosząc ostatni kieliszek soju jak trofeum mistrzostw świata, jak Puchar UEFA, jak Oscar za najlepszy film roku. "Był dobry wieczór! Nie, był BARDZO dobry wieczór! Nie, był NAJLEPSZY wieczór w historii Samsung Electronics Polska! Marek jest teraz oficjalnym honorary koreańskim bratem naszej firmy!"
+
+"Na zawsze!" - krzyknął cały stół jednocześnie, podnosząc swoje kieliszki w ostatnim, uroczystym, ceremonialnym toaście, który brzmiał jak przysięga lub jak hymn.
+
+"Za przyjaźń polsko-koreańską, która jest ponad różnicami kulturowymi!" - dodała pani Park z powagą i wzruszeniem.
+
+"Za Małgośkę, która połączyła nasze serca!" - krzyknął pan Lee z teatralną dramatycznością.
+
+"Za soju, który jest najlepszym tłumaczem między ludźmi!" - dorzucił ktoś z końca stołu.
+
+"Za to, że znaleźliśmy rodzinę tam, gdzie oczekiwaliśmy tylko kolegów z pracy!" - dodał ktoś inny.
+
+Wszyscy zaczęli się zbierać, co przy ich obecnym stanie trzeźwości przypominało ewakuację z tonącego Titanica, ale w bardzo dobrych nastrojach i z przekonaniem, że to była najlepsza podróż w ich życiu. Marek, który przez ostatnie sześć godzin wypił więcej alkoholu niż przez ostatnie sześć miesięcy, ledwo trzymał się na nogach, ale dzielnie i z determinacją kogoś, kto nie chce zawieść nowej rodziny, próbował pomóc zapakować pozostałości jedzenia do plastikowych pojemników, które ajumma rozdawała jak drogie prezenty.
+
+"Teraz co się dzieje?" - zapytał mnie głosem, który brzmiał jak echo z bardzo głębokiej, bardzo mokrej studni, ale studni szczęśliwej.
+
+"Teraz wszyscy wracają do domu i jutro udają, że nic się nie stało" - wyjaśniałam, pomagając mu włożyć kurtkę i sprawdzając po dwa razy, czy ma portfel, klucze i telefon.
+
+"Jak to nic się nie stało?!" - Marek patrzył na mnie z niedowierzaniem kogoś, kto właśnie usłyszał, że wczorajsza bitwa pod Grunwaldem to był tylko sen, a Napoleon to postać fikcyjna. "Przez sześć godzin byliśmy jak jedna wielka, emocjonalna rodzina! Pan Kim płakał mi na ramieniu opowiadając o swojej córce i o tym, jak ciężko być ojcem w dzisiejszych czasach! Pani Park pokazała mi zdjęcia swojego kota - wszystkie, od kiedy był małym kociakiem do ostatniego tygodnia! Pan Lee nauczył mnie tańczyć gangnam style i obiecał, że pokażę mu, jak tańczy się poloneza na następnym hoesik!"
+
+"Jutro w biurze wszyscy będą znowu oficjalni" - wyjaśniałam cierpliwie, z mądrością kogoś, kto już przeszedł tę transformację wiele razy, jak nauczycielka tłumacząca dziecku, dlaczego nie można nosić kostiumu supermana do szkoły, chociaż wczoraj wszyscy mówili, że wygląda w nim fantastycznie. "Pan Kim będzie znowu panem Kim z trzeciego piętra, który mówi tylko 'dzień dobry' i 'proszę przygotować raport kwartalny na poniedziałek'. Pani Park będzie znowu panią Park z marketingu, która nie uśmiecha się do nikogo przed dziesiątą rano i nigdy nie rozmawia o swoim życiu prywatnym. Hoesik to jest jak... jak równoległy wszechświat. Istnieje tylko wieczorami, w koreańskich restauracjach, po odpowiedniej ilości soju."
+
+"To jak Narnia?" - zapytał Marek, czyniąc porównanie, które było zadziwiająco trafne i filozoficznie głębokie.
+
+"Dokładnie jak Narnia" - przytaknęłam z uśmiechem. "Ale dla dorosłych. Z alkoholem ryżowym zamiast tureckiej rozkosz. Z karaoke zamiast mówiących zwierząt. I wszyscy pamiętają co się stało, ale udają, że nie pamiętają, aż do następnego hoesik, kiedy znowu mogą być sobą."
+
+"A kiedy będzie następny hoesik?"
+
+"Za miesiąc. Pan Kim już mnie pytał, czy znasz inne polskie piosenki. Powiedziałam mu, że twój repertuar jest nieograniczony."
+
+**ZASKAKUJĄCY EPILOG: PONIEDZIAŁEK RANO - REALITY CHECK**
+
+Następnego poniedziałku w biurze Samsung Electronics Polska stało się coś, czego absolutnie nie oczekiwałam.
+
+Marek był oszołomiony jak żołnierz po pierwszej bitwie - zmęczony, ale dziwnie dumny z siebie i swojego przetrwania w koreańskim teatrze antropologicznym. Pan Kim mijając go w korytarzu koło automatu z kawą, skinął głową z ledwo dostrzegalnym uśmiechem i mruknął "dzień dobry, Marek" zamiast oficjalnego "dzień dobry, panie" - ale to była jedyna, subtelna oznaka tego, że w piątek wieczorem śpiewali razem Małgośkę jak hymn narodowy międzynarodowej solidarności.
+
+Ale o jedenastej rano, gdy siedziałam przy swoim biurku i próbowałam skoncentrować się na miesięcznych raportach finansowych, stało się coś niewytłumaczalnego.
+
+Pan Kim wyszedł ze swojego biura i podszedł do mojego biurka. Nie po to, żeby dać mi zadanie, nie po to, żeby sprawdzić postęp pracy. Podszedł, żeby zapytać:
+
+"Jadzia, czy Marek lubi kimchi?"
+
+"Słucham?" - zapytałam, myśląc, że się przesłyszałam.
+
+"Moja żona przygotowała wczoraj świeże kimchi. Najlepsze w swojej historii kulinarnej. Pomyślałem, że może Marek chciałby spróbować."
+
+I wtedy zrozumiałam, że stało się coś, czego nie przewidywał żaden podręcznik kulturowych różnic międzynarodowych.
+
+Hoesik działał w drugą stronę.
+
+Zamiast tego, żeby Marek został czasowo adoptowany przez koreańską kulturę pracy, pan Kim został permanently zainfekcyjnej polskim podchodom do relacji międzyludzkich.
+
+Przez następne trzy miesiące pan Kim:
+- Przynosił domowe jedzenie dla "polskiego brata Marka"
+- Pytał mnie o polskie święta i tradycje
+- Zaczął mówić "dzień dobry" zamiast oficjalnego powitania koreańskiego
+- Zaprosił nas na kolację do swojego domu (!)
+
+A kiedy dwa miesiące później Marek rzeczywiście zaśpiewał "Kolorowe jarmarki" na kolejnym hoesik, pan Kim płakał ze szczęścia i powiedział mi po koreańsku: "Twój mąż ma polską duszę, ale koreańskie serce".
+
+"To nie mój mąż" - poprawiłam.
+
+"Jeszcze nie" - odpowiedział pan Kim z uśmiechem, który oznaczał, że już planuje nasze wesele.
+
+I to właśnie jest prawdziwa definicja hoesik: miejsce, gdzie kultury nie zderzają się ze sobą, ale tańczą razem do melodii Budki Suflera, a soju okazuje się być najlepszym tłumaczem nie tylko między językami, ale między sercami.
+
+**KODA: ROK PÓŹNIEJ**
+
+Rok później, gdy opowiadam tę historię znajomym, brzmi jak fantazja. Ale mam dowody: pan Kim nadal śpiewa pod prysznicem "Małgośkę" (jego żona mi powiedziała), Marek nauczył się podstaw koreańskiego i gotuje kimchi lepsze niż ja, a w naszej lodówce stale znajduje się przynajmniej jedna butelka soju "na specjalne okazje".
+
+A "Małgośka" Budki Suflera stała się nieoficjalnym hymnem Samsung Electronics Polska - śpiewanym na wszystkich firmowych imprezach, gdy tylko poziom soju we krwi osiągnie odpowiednią koncentrację umożliwiającą międzykulturową fuzję dusz.
+
+Czasem kultura to nie jest coś, co się studiuje w podręcznikach. Czasem kultura to jest po prostu grupa ludzi, którzy zdecydowali się śpiewać razem piosenkę, której nie rozumieją, ale której melodię czują w sercu.
+
+I czasem najlepsze tłumaczenie między kulturami to nie słownik, ale kieliszek soju i dobrej woli do zrobienia z siebie idioty dla innych ludzi.
 
 **EPILOG: NASTĘPNEGO DNIA**
 

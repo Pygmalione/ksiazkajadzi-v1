@@ -2,153 +2,344 @@
 
 ## Wersja 1: SMS-owa opera mydlana
 
-Kochani, Jadzia Kim z tej strony, i muszę wam opowiedzieć o najbardziej katastrofalnej rodzinnej wideokonferencji w historii ludzkości. To było jak zderzenie trzech galaktyk technologicznych - każda wirująca według własnych praw fizyki.
+Kochani, Jadzia Kim z tej strony, i muszę wam opowiedzieć o najbardziej katastrofalnej rodzinnej wideokonferencji w historii ludzkości. To było jak zderzenie trzech galaktyk technologicznych - każda wirująca według własnych praw fizyki, każda zaskakująco przekonana, że tylko ona zna prawdziwe prawa grawitacji.
 
-Wszystko zaczęło się niewinnie. Moja mama z Polski napisała na rodzinnym czacie WhatsApp (który założyłam po trzech miesiącach tłumaczenia, czym jest "czat grupowy"):
+Ale zacznijmy od początku. A dokładniej - od końca. Bo kończy się to tak, że babcia Halinka, która przez 80 lat życia uważała, że elektryczność to spisek rządu przeciwko ludziom uczciwym, siedzi teraz z telefonem w ręku i pyta ciocię Krysię: "Krysiu, pokaż mi jeszcze raz, jak zostać tym psem. Podobały mi się te uszy."
+
+Jak doszliśmy do tego punktu? Otóż, wszystko zaczęło się od pozornie niewinnej wiadomości. Moja mama z Polski napisała na rodzinnym czacie WhatsApp (który założyłam po trzech miesiącach wyjaśniania różnicy między "czatem grupowym" a "grupą wsparcia dla osób pokrzywdzonych przez technologię"):
 
 "Kochani! W niedzielę robimy rodzinne spotkanie online! Babcia Halinka kończy 80 lat!"
 
-Brzmiało prosto, prawda? O, gdybyście tylko wiedzieli...
+Brzmiało prosto, prawda? Jak przepis na wodę gotowaną. Jak instrukcja obsługi kamienia. O, gdybyście tylko wiedzieli, że ta jedna wiadomość uruchomi łańcuch wydarzeń, który doprowadzi do międzynarodowego incydentu technologicznego, traumy międzypokoleniowej i odkrycia, że mój ojciec - inżynier z trzydziestoletnim stażem - nie wie, która strona tabletu to górna.
+
+Ale to jeszcze nie wszystko. Bo najważniejsza rzecz, którą odkryłam tego dnia, to fakt, że miłość rodzinna ma nadludzką moc. Potrafi przetrwać wszystko: wojny światowe, kryzysy gospodarcze, a nawet mojego tatę próbującego przez dwie godziny włączyć kamerę w laptopie, który został specjalnie zaprojektowany tak, żeby można było to zrobić jednym kliknięciem.
 
 ## Akt I: Przygotowania czyli cyfrowy armagedon
 
-Sobota, dzień przed wielkim wydarzeniem. Mój telefon eksplodował od wiadomości.
+Sobota, dzień przed wielkim wydarzeniem. Mój telefon eksplodował od wiadomości jak reaktor w Czarnobylu, tyle że tym razem promieniowanie było czysto technologiczne.
 
-**Mama (SMS):** "Jadziu, jak się włącza tą kamerę w komputerze?"
+Pierwsza wiadomość przyszła o 6:23 rano. O 6:23! W sobotę! A moja mama, która przez całe życie uważała, że przed dziesiątą dzwoni się tylko w przypadku pożaru, śmierci lub narodzin, najwyraźniej uznała problemy z kamerą za stan wyższej konieczności.
 
-**Ja (WhatsApp):** "Mamo, pisałam ci instrukcję. Jest w naszym czacie."
+**Mama (SMS, 6:23):** "Jadziu czy śpisz"
 
-**Mama (SMS):** "Ale ja jestem w SMS-ach."
+**Ja (WhatsApp, 6:24, półprzytomna):** "Tak spię mamo"
 
-**Ja (WhatsApp):** "Wiem, ale instrukcja jest na WhatsAppie."
+**Mama (SMS, 6:24):** "To dobrze bo ja nie"
 
-**Mama (MMS z rozmazanym zdjęciem ekranu):** "Nie widzę żadnej instrukcji."
+**Ja (WhatsApp, 6:25, całkowicie zdezorientowana):** "Mamo, dlaczego nie śpisz o tej porze?"
 
-W tym samym czasie moja koreańska teściowa Umma dzwoniła do Jin-ho przez KakaoTalk. Słyszałam tylko jego stronę rozmowy:
+**Mama (SMS, 6:25):** "Bo komputer nie chce mi pokazać mojej twarzy"
 
-"Umma, nie, nie musisz kupować nowego komputera... Tak, ten który masz wystarczy... Nie, 'Zoom' to nie jest nowa marka telewizora... UMMA, NIE IDŹ DO SKLEPU!"
+I tutaj, kochani, dotarło do mnie, że to nie będzie zwykły dzień. To będzie dzień, który przejdzie do historii rodzinnej jako "Ten Dzień, Kiedy Technologia Wygrała."
 
-Tymczasem mój ojciec, inżynier z trzydziestoletnim stażem, dumny użytkownik Nokii 3310 ("bo działa i się nie psuje"), dowiedział się, że będzie musiał użyć smartfona.
+**Ja (WhatsApp, 6:26):** "Mamo, pisałam ci instrukcję wczoraj. Jest w naszym czacie grupowym."
 
-"Jadzia," zadzwonił do mnie ze stacjonarnego, "twoja matka dała mi jakiś tablet. Mówi, że mam przez to rozmawiać z babcią. Ale jak? Nie ma ani słuchawki, ani kabla!"
+**Mama (SMS, 6:27):** "Ale ja jestem w SMS-ach."
+
+**Ja (WhatsApp, 6:28):** "Wiem, że jesteś w SMS-ach. Ale instrukcja jest na WhatsAppie."
+
+**Mama (SMS, 6:29):** "Ale jak mam przejść z SMS-ów na WhatsAppa skoro nie wiem jak włączyć kamerę?"
+
+I tutaj, drodzy czytelnicy, doznałam pierwszego w tym dniu objawienia metafizycznego. Moja mama odkryła technologiczny paradoks: potrzebowała instrukcji, żeby dostać się do instrukcji. To było jak pytanie o to, co było pierwsze - jajko czy kura, ale w wersji 2024 roku: co było pierwsze - umiejętność obsługi telefonu czy dostęp do instrukcji obsługi telefonu.
+
+**Mama (MMS, 6:35, z rozmazanym zdjęciem ekranu, na którym widać głównie jej kciuk):** "Nie widzę żadnej instrukcji. A to co to jest?"
+
+Patrzyłam na to zdjęcie jak archeolog na hieroglify. Kciuk mamy zajmował 70% kadru, pozostałe 30% to była rozmazana plama, która mogła być wszystkim - od ekranu laptopa, przez okno, po abstrakcyjną instalację artystyczną przedstawiającą frustrację digital native próbującej pomóc cyfrowo wykluczonemu rodzicowi.
+
+W tym samym czasie, w innym zakątku naszej międzynarodowej rodzinnej tragikomedii, moja koreańska teściowa Umma dzwoniła do Jin-ho przez KakaoTalk. Słyszałam tylko jego stronę rozmowy, ale to wystarczyło, żeby zrozumieć, że na horyzoncie zbiera się kolejna burza technologiczna:
+
+"Umma, nie, nie musisz kupować nowego komputera... Tak, ten który masz wystarczy... Nie, 'Zoom' to nie jest nowa marka telewizora... UMMA, NIE IDŹ DO SKLEPU! Umma, słuchasz mnie? UMMA!"
+
+Cisza. Potem westchnienie, które brzmiało jak ostatni oddech człowieka, który właśnie zrozumiał, że jego matka jest już w drodze do najbliższego sklepu elektronicznego z kartą kredytową i determinacją kobiety, która odkryła nową misję życiową.
+
+"Co się stało?" - zapytałam.
+
+"Powiedziała, że jeśli mamy robić videocall z rodziną, to musi mieć 'professional quality'. I rozłączyła się."
+
+"To może nie jest takie złe?"
+
+"Jadzia, moja matka wczoraj kupiła trzy różne adaptery USB, bo sprzedawca powiedział, że 'mogą się przydać'. Ma w domu siedemnaście ładowarek do telefonów, które nie pasują do żadnego telefonu, jaki kiedykolwiek miała. Gdy Umma idzie do sklepu elektronicznego z misją, to jest jak wypuszczenie Godzilli na Tokio."
+
+Tymczasem mój ojciec, inżynier z trzydziestoletnim stażem, dumny użytkownik Nokii 3310 ("bo działa i się nie psuje, a jak spadnie, to działa jeszcze lepiej"), dowiedział się, że będzie musiał użyć smartfona do videocall.
+
+Telefon zadźwonił. Stacjonarny, oczywiście.
+
+"Jadzia," jego głos brzmiał jak głos człowieka, który właśnie zobaczył UFO lądujące w swoim ogrodzie, "twoja matka dała mi jakiś... tablet. Mówi, że mam przez to rozmawiać z babcią. Ale jak? Nie ma ani słuchawki, ani kabla do gniazdka telefonicznego!"
 
 "Tato, to jest bezprzewodowe..."
 
-"Bezprzewodowe?! A skąd płynie prąd do głosu?!"
+"Bezprzewodowe?!" - krzyknął, jakby właśnie powiedziałam mu, że tablet działa na magię. "A skąd płynie prąd do głosu?! Gdzie są druty?! Jadzia, czy ty mi mówisz, że ten kawałek szkła może rozmawiać przez powietrze?!"
 
-Spędziłam następne dwie godziny tłumacząc mojemu ojcu podstawy fizyki fal elektromagnetycznych, podczas gdy Jin-ho próbował powstrzymać swoją matkę przed zakupem "profesjonalnego zestawu do streamingu" za 3000 dolarów.
+I tutaj, kochani, zaczęłam dwugodzinną prelekcję na temat podstaw fizyki fal elektromagnetycznych dla inżyniera, który projektował mosty i budynki, ale najwyraźniej nigdy nie zastanawiał się nad tym, jak działa radio. Wyjaśniałam mu, że sygnał leci przez powietrze jak niewidzialne fale, a on pytał, czy te fale nie mogą się pomylić i wysłać jego głosu do kogoś innego.
+
+"A co jak będę mówił do babci, a usłyszy mnie sąsiad?" - pytał z głębokim niepokojem.
+
+"Tato, to nie tak działa..."
+
+"A skąd wiesz? Czy ty studiowałaś inżynierię fal bezprzewodowych?"
+
+Nie studiowałam. Ale wiedziałam, że WiFi to nie jest czarna magia, co najwyraźniej stawiało mnie w pozycji eksperta w porównaniu z człowiekiem, który uważał, że Internet to miejsce, gdzie ludzie chowają swoje zdjęcia.
+
+Podczas gdy ja próbowałam przekonać mojego ojca, że tablet nie eksploduje mu w rękach, Jin-ho prowadził własną walkę z czasem i koreańskim temperamentem swojej matki. Dostawał SMS-y w tiempo real:
+
+"Jest za 3000 dolarów kamera 4K dla YouTuberów!"
+"Kupuję też mikrofon profesjonalny!"
+"I oświetlenie ring light!"
+"Będę wyglądać jak gwiazda K-pop!"
+
+"Jadzia," powiedział Jin-ho z rezygnacją w głosie, "myślę, że moja matka właśnie kupiła studio telewizyjne."
+
+"Może przesadzasz?"
+
+Minutę później dostał zdjęcie Ummy pozującej w sklepie z kamerą większą niż jej głowa i uśmiechem kobiety, która właśnie zdobyła Mount Everest.
 
 ## Akt II: Konfiguracja czyli wojna światów
 
-Niedziela rano. Postanowiłam zrobić "próbę techniczną" z każdym uczestnikiem osobno. Naiwna byłam.
+Niedziela rano. Obudziłam się z nadzieją w sercu i planem w głowie. "Zrobię próbę techniczną z każdym uczestnikiem osobno," pomyślałam. "Lepiej dmuchać na zimne."
 
-**9:00 - Mama**
+O jak bardzo naiwna byłam. To było jak przygotowywanie się do spokojnego piknika, nie wiedząc, że w przyszłości meteorolodzy odnotują to jako dzień największej burzy technologicznej w historii naszego regionu.
 
-"Jadziu, jestem gotowa!"
+**9:00 - Mama: Anatomia katastrofy w close-up**
 
-Na ekranie pojawiło się... ucho. Gigantyczne, rozpikselowane ucho mojej mamy.
+"Jadziu, jestem gotowa!" - ogłosiła mama z entuzjazmem kobiety, która właśnie skończyła czytać instrukcję obsługi mikrofalówki i czuje się ekspertem od elektroniki.
 
-"Mamo, cofnij się od kamery."
+Kliknęłam "zaakceptuj połączenie" i... Na ekranie pojawiło się coś, co wyglądało jak kadr z filmu science fiction o inwazji gigantycznych organów ludzkich. Ucho. Gigantyczne, rozpikselowane, nieco zamazane ucho mojej mamy wypełniało cały ekran w rozdzielczości HD.
 
-"ALE JAK COFNĘ, TO MNIE NIE USŁYSZYSZ!"
+"Mamo," powiedziałam spokojnie, próbując zachować resztki własnego zdrowia psychicznego, "cofnij się od kamery."
 
-"Mamo, mikrofon działa niezależnie od..."
+"ALE JAK SIĘ COFNĘ, TO MNIE NIE USŁYSZYSZ!" - wrzasnęła, co sprawiło, że jej ucho zadrgało na ekranie jak żywy organizm.
 
-TRZASK! Ekran zrobił się czarny.
+"Mamo, mikrofon działa niezależnie od odległości kamery..."
 
-"Mamo?"
+TRZASK! Ekran zrobił się czarny. Cisza. Potem odgłos czegośuderzającego o podłogę i seria przekleństw, których moja matka oficjalnie nie zna.
 
-"Spadł mi laptop z łóżka. Czekaj, podnoszę... O, teraz widzę tylko siebie!"
+"Mamo? Mamo, słyszysz mnie?"
 
-"To dobrze, mamo."
+"Spadł mi laptop z łóżka!" - dobiegał głos spod łóżka. "Czekaj, podnoszę... Moment... O kurczę, jak ten kabel się tu wplątał... Aua... OK, mam!"
 
-"Ale ja chcę widzieć ciebie!"
+Obraz wrócił. Teraz widziałam sufit sypialni moich rodziców i żyrandol, który – szczerze mówiąc – potrzebował odkurzenia.
 
-Kolejne pół godziny spędziłam tłumacząc różnicę między widokiem swojej kamery a widokiem innych uczestników. Mama w końcu zrozumiała, ale teraz miała nową obsesję:
+"Mamo, gdzie jesteś?"
 
-"Jadziu, jak włączyć te filtry? Sąsiadka Bożenka miała wczoraj koci pyszczek!"
+"Tu jestem! Na łóżku! Oj, teraz widzę tylko siebie! Jak ja się staro wyglądałam! Oj, ale ta kamera to źle pokazuje..."
 
-**10:00 - Babcia Halinka (przez telefon cioci Krysi)**
+"To dobrze, mamo, że widzisz siebie."
 
-"Halo? Jadzia? Czy ty mnie widzisz?"
+"Ale ja chcę widzieć ciebie! Co z tego, że widzę siebie? Siebie widzę w lustrze każdego dnia!"
+
+I tutaj rozpoczęła się jedna z najdłuższych konwersacji w moim życiu. Pół godziny spędziłam na wyjaśnianiu różnicy między widokiem swojej kamery a widokiem innych uczestników. Mama słuchała z taką koncentracją, jakby tłumaczyła jej teorię względności Einsteina. Zadawała pytania typu "Ale jak to możliwe, że ja widzę siebie, ale ty widzisz mnie?" i "Czy jak się poruszę, to ty też się poruszasz?"
+
+W końcu zrozumiała. Ale jak to często bywa z nowymi umiejętnościami, sukces doprowadził do nowej obsesji:
+
+"Jadziu, a jak włączyć te filtry? Sąsiadka Bożenka wczoraj na video miała koci pyszczek! I wyglądała o dwadzieścia lat młodziej! Ja też chcę być kotem!"
+
+"Mamo, to są snapchatowe filtry, nie musisz..."
+
+"ALE JA CHCĘ BYĆ KOTEM! Bożenka mówiła, że to bardzo łatwe!"
+
+I tak, kochani, odkryłam, że moja mama ma głęboko ukryte pragnienie transformacji w kota domowego. Ale to było dopiero początek tej opery mydlanej.
+
+**10:00 - Babcia Halinka (przez telefon cioci Krysi): Metaphysical confusion in real time**
+
+"Halo? Jadzia? Czy ty mnie widzisz?" - dobiegł głos babci z telefonu cioci Krysi. Głos pełen obaw i podejrzeń, jak gdyby pytała, czy widzę duchy.
 
 "Babciu, musisz najpierw włączyć wideo na telefonie cioci."
 
-"Ale ja mówię przez telefon!"
+"Ale ja mówię przez telefon!" - odpowiedziała z logiką, której nie sposób było odmówić poprawności.
 
 "Wiem, babciu, ale to jest smartfon, możesz przez niego też pokazywać obraz."
 
-"Obraz? Jaki obraz? Nie mam żadnych obrazów!"
+Cisza. Potem:
 
-Ciocia Krysia wyrwała telefon: "Jadzia, twoja babcia myśli, że mamy jej pokazywać obrazy ze ściany. Co mam jej powiedzieć?"
+"Obraz? Jaki obraz? Nie mam żadnych obrazów! Krysiu, ona chce żebym wysyłała obrazy przez telefon! Gdzie ja mam wziąć obrazy?!"
+
+W tle słyszałam szuranie i szepty. Ciocia Krysia wyrwała telefon:
+
+"Jadzia, twoja babcia myśli, że mamy jej pokazywać obrazy ze ściany przez telefon. Właśnie przyniosła ze swojego pokoju oprawiony portret dziadka z 1965 roku i pyta, czy ma go przyłożyć do telefonu. Co mam jej powiedzieć?"
 
 "Że to jest jak telewizja, tylko że ona też jest w telewizji."
 
-Słyszałam babcię w tle: "NIE CHCĘ BYĆ W TELEWIZJI! NIE JESTEM UMALOWANA!"
+Kolejna cisza. Potem eksplozja:
 
-**11:00 - Teściowa Umma**
+"NIE CHCĘ BYĆ W TELEWIZJI! NIE JESTEM UMALOWANA! I MUSZĘ PRZEWIETRZYĆ POKÓJ! I CO LUDZIE POMYŚLĄ?!"
 
-Umma pojawiła się na ekranie w pełnym makijażu, z profesjonalnym oświetleniem i... green screenem z tyłu.
+"Babciu, nikt nas nie oglądać oprócz rodziny..."
 
-"Annyeonghaseyo, Jadzia! Widzisz, kupiłam wszystko co potrzebne!"
+"ALE CO JAK SIĘ WŁĄCZY NA TVP?! CO JAK ZOBACZY MNIE PANI KOWALSKA Z PIERWSZEGO PIĘTRA?!"
 
-"Umma... czy to jest ring light?"
+"Babciu, to nie jest telewizja publiczna..."
 
-"Tak! I kamera 4K! I mikrofon pojemnościowy! Pan w sklepie powiedział, że wszystkie YouTuberki takie mają!"
+"A SKĄD WIESZ?! CZY TY SPRAWDZIŁAŚ WSZYSTKIE KANAŁY?!"
+
+Ciocia Krysia wróciła do telefonu: "Jadzia, ona teraz sprawdza pilota od telewizora, żeby się upewnić, że nie ma kanału 'Rodzina Jadzi'. Mam nadzieję, że rozumiesz, że ja też tracę rozum w tym procesie."
+
+"Trzymaj się, ciociu. Będzie jeszcze gorzej."
+
+"Gorzej? Jak może być gorzej?"
+
+O jak bardzo niewinna była ta cisza zanim odpowiedziałam...
+
+**11:00 - Teściowa Umma: Hollywood meets Korean family values**
+
+O godzinie 11:00 rano, kiedy większość świata zajmowała się niedzielną kawą i czytaniem gazet, ja miałam swoje spotkanie z przyszłością komunikacji międzynarodowej.
+
+Umma pojawiła się na ekranie i... Boże święty. Wyglądała jak hybryda gwiazdy K-pop, prezentera telewizyjnego i eksperta od YouTube tutorials. Pełny makijaż, który mógłby konkurować z tym, co widzimy na czerwonym dywanie. Profesjonalne oświetlenie, które sprawiało, że wyglądała jakby ktoś zatrudnił do naszej rodzinnej rozmowy całą ekipę filmową. A za nią... green screen.
+
+GREEN SCREEN. Do rodzinnej rozmowy. Moja teściowa kupiła green screen.
+
+"Annyeonghaseyo, Jadzia!" - powiedziała z uśmiechem, który mógłby zasilać małe miasto. "Widzisz, kupiłam wszystko co potrzebne! Profesjonalny setup!"
+
+"Umma..." zaczęłam ostrożnie, jak osoba próbująca rozbroić bombę, która może eksplodować w każdej chwili, "czy to jest ring light?"
+
+"Tak!" - jej oczy zabłysły dumą. "I kamera 4K! I mikrofon pojemnościowy! I poppers przeciw szkodliwemu światłu! Pan w sklepie elektronicznym powiedział, że wszystkie profesjonalne YouTuberki takie mają!"
 
 "Ale Umma, to tylko rodzinna rozmowa..."
 
-"Właśnie! Rodzina zasługuje na najlepszą jakość! Czekaj, włączę efekty!"
+Spojrzała na mnie tak, jakbym właśnie zasugerowała, że do własnego ślubu można się ubrać w dres.
 
-Nagle Umma zniknęła, a zamiast niej na ekranie pojawiła się... plaża na Hawajach.
+"Właśnie! Rodzina zasługuje na najlepszą jakość! Czy myślisz, że dam rodzinie Jin-ho amateur production? NIE! Będzie Hollywood quality!" - oświadczyła z determinacją kobiety, która właśnie planuje podbić przemysł rozrywkowy.
 
-"Umma, gdzie jesteś?"
+"Umma, to jest bardzo miłe z twojej strony, ale może..."
 
-"Tu jestem!" - jej głowa pojawiła się nagle, unosząca się nad oceanem jak jakaś technologiczna wersja koreańskiego ducha.
+"Czekaj, włączę efekty! Zobaczysz jaka jestem professional!"
 
-Jin-ho wyrwał jej myszkę: "Umma, proszę, żadnych efektów. Błagam."
+I tutaj zaczęła się prawdziwa jazda. Umma zniknęła. Dosłownie. Zamiast niej na ekranie pojawiła się... plaża na Hawajach. Palmy kołysały się na wietrze, ocean mieniły się turkusowym odcieniem, gdzieś w tle słychać było szum fal. Wyglądało to jak reklama biura podróży.
 
-**12:00 - Tato**
+"Umma, gdzie jesteś?" - zapytałam pustą plażę.
 
-"HALO! HALO! CZY MNIE SŁYCHAĆ?!"
+"Tu jestem!" - nagle jej głowa pojawiła się w prawym górnym rogu ekranu, unosząc się nad oceanem jak jakaś technologiczna wersja koreańskiego ducha morskiego. Miała wciąż pełny makijaż, ale teraz wyglądała jak postać z bardzo dziwnego filmu science fiction o duchach, które odpoczywają na tropikalnych plażach.
+
+"Widzisz? Teraz jestem na wakacjach na Hawajach! Ale tak naprawdę jestem w Seoul! To jest przyszłość, Jadzia!"
+
+W tle słyszałam Jin-ho krzyczącego po koreańsku. Po pięciu latach małżeństwa zrozumiałam na tyle koreańskiego, żeby wiedzieć, że używa słów, których jego matka prawdopodobnie nauczyła go nie używać.
+
+Jin-ho wyrwał jej myszkę: "Umma, PROSZĘ, żadnych efektów. Błagam. To jest rodzinna rozmowa, nie producja hollywoodzka!"
+
+"Ale Jin-ho, kupiłam to wszystko dla rodziny! Czy nie chcesz żeby twoja żona miała najbolji picture quality?"
+
+"Umma, Jadzia ma już dobry obraz..."
+
+"Ale nie ma Hawaiian beach experience!"
+
+I tutaj zrozumiałam, że moja teściowa odkryła wymiar technologii, o którym ja nigdy nie pomyślałam. Dla niej videocall to nie był sposób komunikacji. To była platforma artystyczna, sposób na pokazanie światu (czyli nam), jaka jest kreatywna i nowoczesna.
+
+Następne dziesięć minut spędziłam oglądając Ummę teleportującą się między różnymi lokalizacjami: z Hawajów na Mount Everest, z Mount Everest do Paryża (wieża Eiffla z tyłu), z Paryża na powierzchnię Marsa.
+
+"Teraz jestem astronauta!" - oznajmiła dumnie, jej głowa unoszące się nad czerwoną planetą. "Za trzy dni Jin-ho może być także astronauta, jeśli będzie miał lepszy job!"
+
+To był moment, kiedy zrozumiałam, że nasze families calls nigdy już nie będą takie same.
+
+**12:00 - Tato: Inżynier vs. tablet, pojedynek stulecia**
+
+"HALO! HALO! CZY MNIE SŁYCHAĆ?!" - dobrym głos niosący się przez całą Koreę Południową i prawdopodobnie też Północną.
 
 "Tato, nie musisz krzyczeć, mikrofon działa."
 
-"ALE JAK MIKROFON SKORO NIC NIE TRZYMAM?!"
+"ALE JAK MIKROFON SKORO NIC NIE TRZYMAM?!" - wrzasnął jeszcze głośniej, jakby chciał się upewnić, że słyszą go także sąsiedzi z trzech przecznic.
 
-Na ekranie widziałam mojego ojca trzymającego tablet na wyciągniętych rękach, jakby to była bomba atomowa.
+Na ekranie widziałam mojego ojca trzymającego tablet na wyciągniętych rękach, jakby to była bomba atomowa, którą próbuje przekazać ekspertowi od bomb atomowych znajdującemu się po drugiej stronie pokoju. Jego twarz wyrażała mieszankę przerażenia, determinacji i głębokiego przekonania, że wszechświat spisuje się przeciwko niemu.
 
 "Tato, postaw tablet na stole."
 
-"Ale wtedy nie będzie mnie widać!"
+"Ale wtedy nie będzie mnie widać!" - protest brzmiał jak krzyk człowieka, który właśnie dowiedział się, że ma zostać wymazany z historii.
 
-"Będzie, jest szeroki kąt..."
+"Będzie widać, tato. Jest szeroki kąt, kamera ma duży zasięg..."
+
+Cisza. Potem:
 
 "JAKI KĄT? JADZIA, CZY TY UŻYWASZ GEOMETRII?"
 
+I tutaj, drodzy czytelnicy, dotarło do mnie, że mój ojciec - człowiek, który przez trzydzieści lat projektował mosty i budynki, który znał każdy wzór matematyczny potrzebny do wyliczenia obciążeń konstrukcji - właśnie zadał mi pytanie, czy używam geometrii, jakby to była forma czarnej magii.
+
+"Tato, to nie geometria, to po prostu technologia..."
+
+"A TECHNOLOGIA TO NIE JEST GEOMETRIA?! PRZECIEŻ WSZYSTKO MA SWOJE WYMIARY!"
+
+Miał rację. Ale jednocześnie miał zupełnie nie rację. To był jeden z tych momentów, kiedy logika i rzeczywistość spotykają się w bardzo dziwnym miejscu i postanawiają walczyć na śmierć i życie.
+
+"Tato, po prostu postaw tablet na stole i się odsuń."
+
+"ALE JAK SIĘ ODSUŃĘ, TO JUŻ NIE BĘDĘ PRZY TABLECIE!"
+
+"To dobrze, tato."
+
+"ALE JAK DOBRZE SKORO MAM ROZMAWIAĆ PRZEZ TABLET?!"
+
+"Możesz rozmawiać z odległości, tato."
+
+"ALE SKĄD TABLET BĘDZIE WIEDZIAŁ, ŻE TO JA MÓWIĘ JEŚLI BĘDĘ DALEKO?!"
+
+I w tym momencie zrozumiałam, że mój ojciec postrzega tablet jak bardzo dziwnego, technologicznego rozmówcę, który potrzebuje bezpośredniego kontaktu wzrokowego, żeby wiedzieć, kto do niego mówi. To było jak próba wytłumaczenia działania telefonu komuś, kto nigdy nie słyszał o istnieniu fal dźwiękowych.
+
+"Tato, mikrofon słyszy dźwięk z odległości..."
+
+"ALE GDZIE JEST TEN MIKROFON?! NIE WIDZĘ ŻADNEGO MIKROFONU!"
+
+"Jest w tablecie, tato."
+
+"W TABLECIE?! A GDZIE DOKŁADNIE?!"
+
+"Nie wiem dokładnie gdzie, tato, ale jest."
+
+"JAK TO NIE WIESZ?! TO TWOJA TECHNOLOGIA!"
+
+I tutaj nastąpił moment, który na zawsze zmienił moją perspektywę na komunikację międzypokoleniową. Mój ojciec, inżynier, który potrafił zaprojektować most wytrzymujący ciężar stu ciężarówek, nie mógł zaakceptować istnienia mikrofonu, którego fizycznej lokalizacji nie można było precyzyjnie określić.
+
+"Tato, czy możesz po prostu spróbować postawić tablet na stole?"
+
+"A CO JAK SIĘ ZEPSUJE?"
+
+"Nie zepsuje się od postawienia na stole, tato."
+
+"A SKĄD WIESZ? CZY TY JESTEŚ PRODUCENTEM TABLETÓW?"
+
+Nie byłam. Ale wiedziałam, że tablety są zaprojektowane tak, żeby można je było postawić na stole. To wydawało mi się dość oczywiste. Najwyraźniej nie było to oczywiste dla inżyniera, który był przekonany, że każde urządzenie elektroniczne może eksplodować w najmniej oczekiwanym momencie.
+
 ## Akt III: H-Hour czyli początek końca
 
-15:00. Czas na właściwe spotkanie. Utworzyłam "pokój" na Zoomie i rozesłałam link. I wtedy zaczęła się prawdziwa jazda.
+15:00. Zero Hour. The moment of truth. Czas na właściwe spotkanie rodzinne, które miało być prostym "porozmawiajmy z babcią na jej 80. urodziny", a zamieniło się w coś, co historycy technologii będą nazywać "Wielką Katastrofą Komunikacyjną 2024 roku".
 
-**15:05**
+Utworzyłam "pokój" na Zoomie - słowo "pokój" nabierało tu ironicznego znaczenia, bo to, co się za chwilę wydarzy, będzie miało tyle wspólnego ze spokojem pokoju co tornado z delikatną bryzą morską. Rozesłałam link wszystkim uczestnikom. 
 
-Pierwsza dołączyła mama. Jej kamera była ustawiona tak, że widziałam tylko sufit i żyrandol.
+I wtedy zaczęła się prawdziwa jazda.
+
+**15:05 - Pierwsze przybycie: Mama i przypadek niewidzialnego człowieka**
+
+Pierwsza dołączyła mama. Jej awatar pojawił się na ekranie z charakterystycznym dźwiękiem Zooma, ale zamiast jej twarzy zobaczyłam... architekturę. Konkretnie: sufit sypialni moich rodziców i żyrandol z lat 80., który w HD wyglądał jeszcze bardziej przestarzale niż w rzeczywistości.
 
 "Mamo, kamera!"
 
-"Co kamera?"
+"Co kamera?" - dobiegał głos z góry, jakby mama stała się duchem mieszkającym w suficie.
 
 "Skieruj ją na siebie!"
 
-"Ale ja patrzę na ekran!"
+"Ale ja patrzę na ekran!" - protest ducha-mamy zawierał w sobie logikę, której nie można było odmówić pewnej zwodniczej spójności.
 
-**15:10**
+"Mamo, kamera i ekran to są dwie różne rzeczy..."
 
-Dołączył tato. Bez wideo. Za to z włączonym mikrofonem, przez który słychać było mecz piłki nożnej.
+"Jak to różne? Przecież to jest ten sam komputer!"
+
+I tutaj rozpoczęła się pierwsza z wielu tego dnia prelekcji na temat podstawowej anatomii laptopa. Wyjaśniałam mamie, że urządzenie, na które patrzy (ekran) i urządzenie, które na nią patrzy (kamera), to są dwa oddzielne elementy tego samego sprzętu. Mama słuchała tego jak odkrycia naukowego na miarę teorii względności.
+
+"A więc komputer ma oczy?" - zapytała w końcu.
+
+"W pewnym sensie, tak."
+
+"I gdzie są te oczy?"
+
+"Na górze ekranu, mamo."
+
+"A dlaczego nikt mi nie powiedział, że komputer ma oczy?! Przecież to ważne!"
+
+Miała rację. To było ważne. I nikt jej nie powiedział, bo wszyscy zakładaliśmy, że to oczywiste. Ale dla osoby, która przez większość życia używała urządzeń bez oczu, istnienie computerowych oczu było odkryciem wstrząsającym.
+
+**15:10 - Drugie przybycie: Tato i radiowa Inwazja**
+
+Dołączył tato. Ekran pokazał czarną plankę z jego imieniem, ale mikrofon był włączony. I przez ten mikrofon dobiegały nas... dźwięki meczu piłki nożnej w surround sound quality.
 
 "Tato, wyłącz telewizor!"
 
-"Jaki telewizor?"
+"Jaki telewizor?" - zapytał głos z czarnej planki, podczas gdy w tle komentator wyjaśniał szczegóły ostatniego rzutu rożnego.
 
 "Ten, który słyszymy!"
 
@@ -156,39 +347,87 @@ Dołączył tato. Bez wideo. Za to z włączonym mikrofonem, przez który słych
 
 "TO WYŁĄCZ RADIO!"
 
-"Ale Polska gra!"
+"Ale Polska gra!" - protest zawierał w sobie wszystko, co można wiedzieć o hierarchii wartości mojego ojca. Rodzina = ważna. Babcia = bardzo ważna. Ale Polska grająca w piłkę = niemożliwe do ignorowania.
 
-**15:15**
+"Tato, możesz nagrać mecz!"
 
-Umma pojawiła się jako awatar jednorożca.
+"NA CZYM MAM NAGRAĆ? NA TABLECIE?"
 
-"Umma... co się stało?"
+"Nie, tato, na telewizorze można nagrać..."
 
-"Włączyłam AR! Czy nie jestem urocza?"
+"ALE TELEWIZOR TO NIE RADIO! MÓWIŁAŚ ŻEBYM WYŁĄCZYŁ RADIO!"
 
-Jednorożec zaczął tańczyć. Jin-ho wyglądał, jakby chciał się zapaść pod ziemię.
+I tutaj dotarło do mnie, że mój ojciec ma w domu złożony system audio-wizualny, w którym telewizor połączony jest z radiem, radio z amplifikatorem, a całość prawdopodobnie sterowana jest przez piloty pochodzące z różnych dekad. Wyłączenie jednego elementu bez wpływu na pozostałe wymagałoby prawdopodobnie stopnia naukowego z inżynierii akustycznej.
 
-**15:20**
+"Tato, może po prostu wycisz wszystko?"
 
-Babcia Halinka w końcu dołączyła. Dokładniej - dołączyła ciocia Krysia trzymająca telefon, na którym babcia próbowała zrozumieć, co się dzieje.
+"ALE WTEDY NIC NIE USŁYSZĘ!"
 
-"Gdzie oni wszyscy są?" - pytała babcia, patrząc na ekran.
+"Będziesz nas słyszeć przez tablet!"
 
-"Tu jesteśmy, babciu! W komputerze!" - krzyknęłam.
+"ALE CO JAK TABLET BĘDZIE CICHICZNY OD TEGO WYCISZANIA?"
 
-"W KOMPUTERZE?! Jak się zmieściliście?!"
+Słowo "cichyczny" nie istnieje w języku polskim, ale w tym momencie idealnie oddawało obaw mojego ojca przed tym, że cichość może być zaraźliwa.
+
+**15:15 - Trzecie przybycie: Umma jako mitologiczne stworzenie**
+
+W momencie, gdy myślałam, że sytuacja nie może stać się bardziej surrealistyczna, Umma pojawiła się na ekranie.
+
+Jako jednorożec.
+
+Nie jako osoba z filtrem jednorożca. Jako JEDNOROŻEC. Różowo-fioletowy, z błyszczącym rogiem, z kwiecistymi efektami wizualnymi latającymi wokół. Jej twarz całkowicie zniknęła, zastąpiona przez animowaną głowę mythologicznego stworzenia, które wyglądało jak hybryda My Little Pony i japońskiego anime.
+
+"Umma..." zaczęłam ostrożnie, jak osoba próbująca nawiązać kontakt z obcym gatunkiem, "co się stało?"
+
+"Włączyłam AR!" - powiedział jednorożec głosem mojej teściowej. "Czy nie jestem urocza? Ten filtr kosztował tylko 9.99 dolara!"
+
+Jednorożec zaczął tańczyć. Dosłownie. Jego głowa poruszała się do rytmu jakiejś niewidzialnej muzyki, a przy każdym ruchu z jego rogu wylatywały iskierki i małe serduszka. To było jak oglądanie bardzo dziwnego musicalu o rodzinie, która przypadkowo trafiła do alternatywnego wymiaru.
+
+Jin-ho wyglądał, jakby chciał się zapaść pod ziemię, zostać pochłonięty przez nie i nigdy więcej nie wystawić stamtąd głowy. Jego twarz wyrażała rodzaj wstydu, który prawdopodobnie nie ma nazwy w żadnym języku świata.
+
+"Umma, czy możesz... wyłączyć jednorożca?" - zapytał z desperacją w głosie.
+
+"Ale dlaczego? Jestem beautiful unicorn!"
+
+"Tak, Umma, jesteś pięknym jednorożcem, ale może dla babci..."
+
+"Babcia też może być jednorożcem! Everybody can be unicorn!"
+
+**15:20 - Czwarte przybycie: Babcia i fundamentalne pytania ontologiczne**
+
+Babcia Halinka w końcu dołączyła. Dokładniej mówiąc - dołączyła ciocia Krysia trzymająca telefon jak mikrofon telewizyjny, podczas gdy babcia próbowała zrozumieć, co się dzieje, patrząc na ekran z mieszaniną fascynacji i przerażenia.
+
+"Gdzie oni wszyscy są?" - pytała babcia, obracając głowę w różne strony, jakby szukała ukrytych ludzi w mieszkaniu cioci.
+
+"Tu jesteśmy, babciu! W komputerze!" - krzyknęłam, machając do kamery.
+
+"W KOMPUTERZE?!" - wrzask babci brzmiał jak krzyk kogoś, kto właśnie dowiedział się, że została aresztowana przez komputer. "Jak się zmieściliście?! Przecież komputer jest mały!"
 
 Mama próbowała pomóc: "Mamo, to jest jak telefon, tylko że z obrazem!"
 
-"Telefon z obrazem to telewizor!" - upierała się babcia.
+"Telefon z obrazem to telewizor!" - upierała się babcia z logika, której naprawdę nie można było odmówić pewnej prawdy historycznej.
 
-"Nie, to jest Internet!" - krzyknął tato, wciąż bez wideo.
+"Nie, to jest Internet!" - krzyknął tato, wciąż jako czarny prostokąt z imieniem, ale teraz już bez piłkarskich komentarzy w tle.
 
-"CO TO JEST TEN INTERNET?!" - babcia była coraz bardziej zdezorientowana.
+"CO TO JEST TEN INTERNET?!" - babcia była coraz bardziej zdezorientowana. "CZY TO JEST TO MIEJSCE, GDZIE LUDZIE CHOWAJĄ SWOJE PIENIĄDZE?!"
 
-Wtedy Umma-jednorożec postanowiła pomóc: "To jest jak... magia!"
+Wtedy Umma-jednorożec postanowiła pomóc w wyjaśnieniu:
 
-"MAGIA?! KRYSIU, WYŁĄCZ TO! TO SZATAN!"
+"Babcia Halinka, to jest jak... magia! Beautiful magic!"
+
+Jednorożec skinął głową, a z jego rogu wysypały się małe gwiazdki.
+
+"MAGIA?!" - babcia krzyknęła jak kobieta, która właśnie zobaczyła diabła we własnym mieszkaniu. "KRYSIU, WYŁĄCZ TO! TO SZATAN! TO SZATAN UDAJE KONIKA!"
+
+"Babciu, to nie szatan..." - próbowałam ją uspokoić.
+
+"A SKĄD WIESZ?! CZY TY ROZMAWIAŁAŚ KIEDYŚ Z SZATANEM?!"
+
+"Nie rozmawiałam z szatanem, babciu..."
+
+"TO SKĄD WIESZ ŻE TO NIE SZATAN?!"
+
+I tutaj dotarło do mnie, że logika babci jest niepodważalna. Jeśli nie rozmawiałam nigdy z szatanem, to skąd mogłabym wiedzieć, czy ktoś jest szatanem, czy nie? To było pytanie teologiczne tak głębokie, że prawdopodobnie mogłoby być tematem rozprawy doktorskiej z filozofii religii.
 
 ## Akt IV: Funkcje specjalne czyli totalny chaos
 
