@@ -4,7 +4,6 @@
 npm install -g @pimzino/claude-code-spec-workflow
 # claude-code-spec
 npm install -g @gifflet/ccmd
-ccmd init
 ccmd install https://github.com/gifflet/parallax
 # /parallax [options]
 #Options
@@ -14,5 +13,5 @@ ccmd install https://github.com/gifflet/parallax
 #task_ids: Specific task IDs to implement (e.g., "2,3,7,15")
 
 
-#export MAX_MCP_OUTPUT_TOKENS=150000
+export MAX_MCP_OUTPUT_TOKENS=150000
 echo "Setup complete!"
