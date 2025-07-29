@@ -1,0 +1,11 @@
+version: "1.0"
+lockfileVersion: 1
+commands:
+    parallax:
+        name: parallax
+        version: 1.0.0
+        source: https://github.com/gifflet/parallax.git
+        resolved: https://github.com/gifflet/parallax.git@main
+        commit: a76c96359914b84ed1bcdbc11df03e6313e09ecf
+        installed_at: 2025-07-29T23:01:50.625892539Z
+        updated_at: 2025-07-29T23:01:50.625892539Z
